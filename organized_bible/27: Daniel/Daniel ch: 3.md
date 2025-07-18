@@ -1,0 +1,335 @@
+# Daniel 3
+
+**1** ¶ Nebuchadnezzar the king made an image of gold, whose height [was] threescore cubits, [and] the breadth thereof six cubits: he set it up in the plain of Dura, in the province of Babylon.
+
+**2** Then Nebuchadnezzar the king sent to gather together the princes, the governors, and the captains, the judges, the treasurers, the counsellors, the sheriffs, and all the rulers of the provinces, to come to the dedication of the image which Nebuchadnezzar the king had set up.
+
+**3** Then the princes, the governors, and captains, the judges, the treasurers, the counsellors, the sheriffs, and all the rulers of the provinces, were gathered together unto the dedication of the image that Nebuchadnezzar the king had set up; and they stood before the image that Nebuchadnezzar had set up.
+
+**4** Then an herald cried aloud, To you it is commanded, O people, nations, and languages,
+
+**5** [That] at what time ye hear the sound of the cornet, flute, harp, sackbut, psaltery, dulcimer, and all kinds of musick, ye fall down and worship the golden image that Nebuchadnezzar the king hath set up:
+
+**6** And whoso falleth not down and worshippeth shall the same hour be cast into the midst of a burning fiery furnace.
+
+**7** Therefore at that time, when all the people heard the sound of the cornet, flute, harp, sackbut, psaltery, and all kinds of musick, all the people, the nations, and the languages, fell down [and] worshipped the golden image that Nebuchadnezzar the king had set up.
+
+**8** ¶ Wherefore at that time certain Chaldeans came near, and accused the Jews.
+
+**9** They spake and said to the king Nebuchadnezzar, O king, live for ever.
+
+**10** Thou, O king, hast made a decree, that every man that shall hear the sound of the cornet, flute, harp, sackbut, psaltery, and dulcimer, and all kinds of musick, shall fall down and worship the golden image:
+
+**11** And whoso falleth not down and worshippeth, [that] he should be cast into the midst of a burning fiery furnace.
+
+**12** There are certain Jews whom thou hast set over the affairs of the province of Babylon, Shadrach, Meshach, and Abednego; these men, O king, have not regarded thee: they serve not thy gods, nor worship the golden image which thou hast set up.
+
+**13** Then Nebuchadnezzar in [his] rage and fury commanded to bring Shadrach, Meshach, and Abednego. Then they brought these men before the king.
+
+**14** Nebuchadnezzar spake and said unto them, [Is it] true, O Shadrach, Meshach, and Abednego, do not ye serve my gods, nor worship the golden image which I have set up?
+
+**15** Now if ye be ready that at what time ye hear the sound of the cornet, flute, harp, sackbut, psaltery, and dulcimer, and all kinds of musick, ye fall down and worship the image which I have made; [well]: but if ye worship not, ye shall be cast the same hour into the midst of a burning fiery furnace; and who [is] that God that shall deliver you out of my hands?
+
+**16** Shadrach, Meshach, and Abednego, answered and said to the king, O Nebuchadnezzar, we [are] not careful to answer thee in this matter.
+
+**17** If it be [so], our God whom we serve is able to deliver us from the burning fiery furnace, and he will deliver [us] out of thine hand, O king.
+
+**18** But if not, be it known unto thee, O king, that we will not serve thy gods, nor worship the golden image which thou hast set up.
+
+**19** ¶ Then was Nebuchadnezzar full of fury, and the form of his visage was changed against Shadrach, Meshach, and Abednego: [therefore] he spake, and commanded that they should heat the furnace one seven times more than it was wont to be heated.
+
+**20** And he commanded the most mighty men that [were] in his army to bind Shadrach, Meshach, and Abednego, [and] to cast [them] into the burning fiery furnace.
+
+**21** Then these men were bound in their coats, their hosen, and their hats, and their [other] garments, and were cast into the midst of the burning fiery furnace.
+
+**22** Therefore because the king's commandment was urgent, and the furnace exceeding hot, the flame of the fire slew those men that took up Shadrach, Meshach, and Abednego.
+
+**23** And these three men, Shadrach, Meshach, and Abednego, fell down bound into the midst of the burning fiery furnace.
+
+**24** Then Nebuchadnezzar the king was astonied, and rose up in haste, [and] spake, and said unto his counsellors, Did not we cast three men bound into the midst of the fire? They answered and said unto the king, True, O king.
+
+**25** He answered and said, Lo, I see four men loose, walking in the midst of the fire, and they have no hurt; and the form of the fourth is like the Son of God.
+
+**26** Then Nebuchadnezzar came near to the mouth of the burning fiery furnace, [and] spake, and said, Shadrach, Meshach, and Abednego, ye servants of the most high God, come forth, and come [hither]. Then Shadrach, Meshach, and Abednego, came forth of the midst of the fire.
+
+**27** And the princes, governors, and captains, and the king's counsellors, being gathered together, saw these men, upon whose bodies the fire had no power, nor was an hair of their head singed, neither were their coats changed, nor the smell of fire had passed on them.
+
+**28** ¶ [Then] Nebuchadnezzar spake, and said, Blessed [be] the God of Shadrach, Meshach, and Abednego, who hath sent his angel, and delivered his servants that trusted in him, and have changed the king's word, and yielded their bodies, that they might not serve nor worship any god, except their own God.
+
+**29** Therefore I make a decree, That every people, nation, and language, which speak any thing amiss against the God of Shadrach, Meshach, and Abednego, shall be cut in pieces, and their houses shall be made a dunghill: because there is no other God that can deliver after this sort.
+
+**30** Then the king promoted Shadrach, Meshach, and Abednego, in the province of Babylon.
+
+---
+
+## Cross-References
+
+- **Daniel 3:1** → **Acts 19:26** [[Acts ch: 19.md]] (votes: 6)
+- **Daniel 3:1** → **Daniel 3:30** [[Daniel ch: 3.md]] (votes: 2)
+- **Daniel 3:1** → **Isaiah 2:20** [[Isaiah ch: 2.md]] (votes: 4)
+- **Daniel 3:1** → **Daniel 5:23** [[Daniel ch: 5.md]] (votes: 3)
+- **Daniel 3:1** → **Acts 17:29** [[Acts ch: 17.md]] (votes: 6)
+- **Daniel 3:1** → **Habakkuk 2:19** [[Habakkuk ch: 2.md]] (votes: 11)
+- **Daniel 3:1** → **Hosea 8:4** [[Hosea ch: 8.md]] (votes: 7)
+- **Daniel 3:1** → **Isaiah 46:6** [[Isaiah ch: 46.md]] (votes: 9)
+- **Daniel 3:1** → **1 Kings 12:28** [[1 Kings ch: 12.md]] (votes: 4)
+- **Daniel 3:1** → **Daniel 2:48** [[Daniel ch: 2.md]] (votes: 3)
+- **Daniel 3:1** → **Deuteronomy 7:25** [[Deuteronomy ch: 7.md]] (votes: 3)
+- **Daniel 3:1** → **Exodus 32:31** [[Exodus ch: 32.md]] (votes: 3)
+- **Daniel 3:1** → **Exodus 20:23** [[Exodus ch: 20.md]] (votes: 3)
+- **Daniel 3:1** → **Jeremiah 10:9** [[Jeremiah ch: 10.md]] (votes: 3)
+- **Daniel 3:1** → **Esther 1:1** [[Esther ch: 1.md]] (votes: 2)
+- **Daniel 3:1** → **Jeremiah 16:20** [[Jeremiah ch: 16.md]] (votes: 10)
+- **Daniel 3:1** → **Revelation 9:20** [[Revelation ch: 9.md]] (votes: 2)
+- **Daniel 3:1** → **Isaiah 30:22** [[Isaiah ch: 30.md]] (votes: 3)
+- **Daniel 3:1** → **Psalms 135:15** [[Psalms ch: 135.md]] (votes: 4)
+- **Daniel 3:2** → **Daniel 3:27** [[Daniel ch: 3.md]] (votes: 4)
+- **Daniel 3:2** → **Numbers 25:2** [[Numbers ch: 25.md]] (votes: 3)
+- **Daniel 3:2** → **1 Kings 12:32** [[1 Kings ch: 12.md]] (votes: 3)
+- **Daniel 3:2** → **Proverbs 29:12** [[Proverbs ch: 29.md]] (votes: 3)
+- **Daniel 3:2** → **Judges 16:23** [[Judges ch: 16.md]] (votes: 3)
+- **Daniel 3:2** → **Revelation 17:2** [[Revelation ch: 17.md]] (votes: 2)
+- **Daniel 3:3** → **Romans 3:11** [[Romans ch: 3.md]] (votes: 2)
+- **Daniel 3:3** → **Revelation 17:13** [[Revelation ch: 17.md]] (votes: 4)
+- **Daniel 3:3** → **Revelation 17:17** [[Revelation ch: 17.md]] (votes: 6)
+- **Daniel 3:4** → **Micah 6:16** [[Micah ch: 6.md]] (votes: 4)
+- **Daniel 3:4** → **Isaiah 40:9** [[Isaiah ch: 40.md]] (votes: 2)
+- **Daniel 3:4** → **Hosea 5:11** [[Hosea ch: 5.md]] (votes: 2)
+- **Daniel 3:4** → **Isaiah 58:1** [[Isaiah ch: 58.md]] (votes: 2)
+- **Daniel 3:4** → **Esther 8:9** [[Esther ch: 8.md]] (votes: 2)
+- **Daniel 3:4** → **Daniel 4:14** [[Daniel ch: 4.md]] (votes: 2)
+- **Daniel 3:4** → **Daniel 4:1** [[Daniel ch: 4.md]] (votes: 7)
+- **Daniel 3:4** → **Daniel 6:25** [[Daniel ch: 6.md]] (votes: 7)
+- **Daniel 3:5** → **Daniel 3:7** [[Daniel ch: 3.md]] (votes: 2)
+- **Daniel 3:5** → **Daniel 3:15** [[Daniel ch: 3.md]] (votes: 6)
+- **Daniel 3:5** → **Daniel 3:10** [[Daniel ch: 3.md]] (votes: 5)
+- **Daniel 3:6** → **Genesis 19:28** [[Genesis ch: 19.md]] (votes: 2)
+- **Daniel 3:6** → **Daniel 6:7** [[Daniel ch: 6.md]] (votes: 2)
+- **Daniel 3:6** → **Daniel 3:15** [[Daniel ch: 3.md]] (votes: 4)
+- **Daniel 3:6** → **Isaiah 44:17** [[Isaiah ch: 44.md]] (votes: 2)
+- **Daniel 3:6** → **Matthew 13:50** [[Matthew ch: 13.md]] (votes: 8)
+- **Daniel 3:6** → **Revelation 9:2** [[Revelation ch: 9.md]] (votes: 3)
+- **Daniel 3:6** → **Jeremiah 29:22** [[Jeremiah ch: 29.md]] (votes: 7)
+- **Daniel 3:6** → **Revelation 14:11** [[Revelation ch: 14.md]] (votes: 3)
+- **Daniel 3:6** → **Matthew 4:9** [[Matthew ch: 4.md]] (votes: 2)
+- **Daniel 3:6** → **Daniel 2:5** [[Daniel ch: 2.md]] (votes: 2)
+- **Daniel 3:6** → **Mark 6:27** [[Mark ch: 6.md]] (votes: 2)
+- **Daniel 3:6** → **Matthew 13:42** [[Matthew ch: 13.md]] (votes: 8)
+- **Daniel 3:6** → **Daniel 3:11** [[Daniel ch: 3.md]] (votes: 4)
+- **Daniel 3:6** → **Exodus 20:5** [[Exodus ch: 20.md]] (votes: 2)
+- **Daniel 3:6** → **Daniel 3:21** [[Daniel ch: 3.md]] (votes: 2)
+- **Daniel 3:7** → **Revelation 13:14** [[Revelation ch: 13.md]] (votes: 3)
+- **Daniel 3:7** → **Revelation 13:8** [[Revelation ch: 13.md]] (votes: 3)
+- **Daniel 3:7** → **Jeremiah 51:7** [[Jeremiah ch: 51.md]] (votes: 3)
+- **Daniel 3:7** → **Revelation 13:3** [[Revelation ch: 13.md]] (votes: 3)
+- **Daniel 3:7** → **Revelation 12:9** [[Revelation ch: 12.md]] (votes: 3)
+- **Daniel 3:7** → **Revelation 19:20** [[Revelation ch: 19.md]] (votes: 3)
+- **Daniel 3:7** → **Acts 14:16** [[Acts ch: 14.md]] (votes: 2)
+- **Daniel 3:7** → **Revelation 17:8** [[Revelation ch: 17.md]] (votes: 3)
+- **Daniel 3:7** → **1 John 5:19** [[1 John ch: 5.md]] (votes: 3)
+- **Daniel 3:8** → **Daniel 2:10** [[Daniel ch: 2.md]] (votes: 2)
+- **Daniel 3:8** → **Esther 3:6** [[Esther ch: 3.md]] (votes: 2)
+- **Daniel 3:8** → **Acts 28:22** [[Acts ch: 28.md]] (votes: 2)
+- **Daniel 3:9** → **Daniel 6:21** [[Daniel ch: 6.md]] (votes: 3)
+- **Daniel 3:9** → **Daniel 2:4** [[Daniel ch: 2.md]] (votes: 3)
+- **Daniel 3:9** → **Romans 13:7** [[Romans ch: 13.md]] (votes: 2)
+- **Daniel 3:9** → **Daniel 6:6** [[Daniel ch: 6.md]] (votes: 4)
+- **Daniel 3:9** → **Daniel 5:10** [[Daniel ch: 5.md]] (votes: 4)
+- **Daniel 3:10** → **Psalms 94:20** [[Psalms ch: 94.md]] (votes: 2)
+- **Daniel 3:10** → **Daniel 6:12** [[Daniel ch: 6.md]] (votes: 4)
+- **Daniel 3:10** → **Ecclesiastes 3:16** [[Ecclesiastes ch: 3.md]] (votes: 2)
+- **Daniel 3:10** → **1 Chronicles 15:16** [[1 Chronicles ch: 15.md]] (votes: 2)
+- **Daniel 3:10** → **2 Chronicles 29:25** [[2 Chronicles ch: 29.md]] (votes: 2)
+- **Daniel 3:10** → **Exodus 1:16** [[Exodus ch: 1.md]] (votes: 2)
+- **Daniel 3:10** → **Daniel 3:15** [[Daniel ch: 3.md]] (votes: 2)
+- **Daniel 3:10** → **Exodus 1:22** [[Exodus ch: 1.md]] (votes: 2)
+- **Daniel 3:10** → **Isaiah 10:1** [[Isaiah ch: 10.md]] (votes: 2)
+- **Daniel 3:10** → **John 11:57** [[John ch: 11.md]] (votes: 2)
+- **Daniel 3:10** → **Amos 6:5** [[Amos ch: 6.md]] (votes: 2)
+- **Daniel 3:10** → **1 Chronicles 15:28** [[1 Chronicles ch: 15.md]] (votes: 2)
+- **Daniel 3:12** → **Acts 17:7** [[Acts ch: 17.md]] (votes: 4)
+- **Daniel 3:12** → **Esther 3:8** [[Esther ch: 3.md]] (votes: 2)
+- **Daniel 3:12** → **Daniel 2:49** [[Daniel ch: 2.md]] (votes: 5)
+- **Daniel 3:12** → **Ecclesiastes 4:4** [[Ecclesiastes ch: 4.md]] (votes: 2)
+- **Daniel 3:12** → **Proverbs 27:4** [[Proverbs ch: 27.md]] (votes: 3)
+- **Daniel 3:12** → **Daniel 6:13** [[Daniel ch: 6.md]] (votes: 7)
+- **Daniel 3:12** → **Acts 5:28** [[Acts ch: 5.md]] (votes: 2)
+- **Daniel 3:13** → **Daniel 3:19** [[Daniel ch: 3.md]] (votes: 5)
+- **Daniel 3:13** → **Acts 24:24** [[Acts ch: 24.md]] (votes: 2)
+- **Daniel 3:13** → **Luke 21:12** [[Luke ch: 21.md]] (votes: 2)
+- **Daniel 3:13** → **Luke 6:11** [[Luke ch: 6.md]] (votes: 2)
+- **Daniel 3:13** → **Daniel 2:12** [[Daniel ch: 2.md]] (votes: 4)
+- **Daniel 3:13** → **Matthew 10:18** [[Matthew ch: 10.md]] (votes: 2)
+- **Daniel 3:13** → **Mark 13:9** [[Mark ch: 13.md]] (votes: 2)
+- **Daniel 3:13** → **Genesis 4:5** [[Genesis ch: 4.md]] (votes: 2)
+- **Daniel 3:13** → **Proverbs 27:3** [[Proverbs ch: 27.md]] (votes: 2)
+- **Daniel 3:13** → **Proverbs 29:22** [[Proverbs ch: 29.md]] (votes: 2)
+- **Daniel 3:13** → **Proverbs 17:12** [[Proverbs ch: 17.md]] (votes: 2)
+- **Daniel 3:14** → **Daniel 4:8** [[Daniel ch: 4.md]] (votes: 3)
+- **Daniel 3:14** → **Daniel 3:1** [[Daniel ch: 3.md]] (votes: 5)
+- **Daniel 3:14** → **Isaiah 46:1** [[Isaiah ch: 46.md]] (votes: 4)
+- **Daniel 3:14** → **Jeremiah 50:2** [[Jeremiah ch: 50.md]] (votes: 6)
+- **Daniel 3:15** → **Acts 5:29** [[Acts ch: 5.md]] (votes: 9)
+- **Daniel 3:15** → **Isaiah 37:23** [[Isaiah ch: 37.md]] (votes: 3)
+- **Daniel 3:15** → **Daniel 3:17** [[Daniel ch: 3.md]] (votes: 6)
+- **Daniel 3:15** → **Acts 6:15** [[Acts ch: 6.md]] (votes: 3)
+- **Daniel 3:15** → **Luke 12:11** [[Luke ch: 12.md]] (votes: 3)
+- **Daniel 3:15** → **Luke 13:9** [[Luke ch: 13.md]] (votes: 3)
+- **Daniel 3:15** → **2 Kings 18:35** [[2 Kings ch: 18.md]] (votes: 6)
+- **Daniel 3:15** → **Matthew 10:19** [[Matthew ch: 10.md]] (votes: 2)
+- **Daniel 3:15** → **Acts 4:19** [[Acts ch: 4.md]] (votes: 4)
+- **Daniel 3:15** → **Daniel 6:16** [[Daniel ch: 6.md]] (votes: 4)
+- **Daniel 3:15** → **Mark 13:11** [[Mark ch: 13.md]] (votes: 4)
+- **Daniel 3:15** → **Daniel 6:20** [[Daniel ch: 6.md]] (votes: 3)
+- **Daniel 3:15** → **Matthew 27:43** [[Matthew ch: 27.md]] (votes: 2)
+- **Daniel 3:15** → **Exodus 32:32** [[Exodus ch: 32.md]] (votes: 3)
+- **Daniel 3:15** → **Exodus 5:2** [[Exodus ch: 5.md]] (votes: 6)
+- **Daniel 3:16** → **Daniel 1:7** [[Daniel ch: 1.md]] (votes: 4)
+- **Daniel 3:16** → **Daniel 3:12** [[Daniel ch: 3.md]] (votes: 3)
+- **Daniel 3:17** → **1 Samuel 17:46** [[1 Samuel ch: 17.md]] (votes: 8)
+- **Daniel 3:17** → **1 Samuel 17:37** [[1 Samuel ch: 17.md]] (votes: 8)
+- **Daniel 3:17** → **Daniel 4:35** [[Daniel ch: 4.md]] (votes: 8)
+- **Daniel 3:17** → **Isaiah 54:14** [[Isaiah ch: 54.md]] (votes: 5)
+- **Daniel 3:17** → **Jeremiah 1:8** [[Jeremiah ch: 1.md]] (votes: 16)
+- **Daniel 3:17** → **Job 5:19** [[Job ch: 5.md]] (votes: 11)
+- **Daniel 3:17** → **Romans 8:31** [[Romans ch: 8.md]] (votes: 24)
+- **Daniel 3:17** → **Isaiah 12:2** [[Isaiah ch: 12.md]] (votes: 10)
+- **Daniel 3:17** → **Acts 21:13** [[Acts ch: 21.md]] (votes: 13)
+- **Daniel 3:17** → **Genesis 17:1** [[Genesis ch: 17.md]] (votes: 3)
+- **Daniel 3:17** → **Luke 1:37** [[Luke ch: 1.md]] (votes: 22)
+- **Daniel 3:17** → **Genesis 18:14** [[Genesis ch: 18.md]] (votes: 8)
+- **Daniel 3:17** → **Psalms 115:3** [[Psalms ch: 115.md]] (votes: 10)
+- **Daniel 3:17** → **Hebrews 7:25** [[Hebrews ch: 7.md]] (votes: 17)
+- **Daniel 3:17** → **Psalms 73:20** [[Psalms ch: 73.md]] (votes: 3)
+- **Daniel 3:17** → **Acts 20:24** [[Acts ch: 20.md]] (votes: 9)
+- **Daniel 3:17** → **Job 34:29** [[Job ch: 34.md]] (votes: 6)
+- **Daniel 3:17** → **Daniel 6:27** [[Daniel ch: 6.md]] (votes: 9)
+- **Daniel 3:18** → **Acts 4:19** [[Acts ch: 4.md]] (votes: 4)
+- **Daniel 3:18** → **Job 13:15** [[Job ch: 13.md]] (votes: 4)
+- **Daniel 3:18** → **Proverbs 28:1** [[Proverbs ch: 28.md]] (votes: 6)
+- **Daniel 3:18** → **Matthew 10:28** [[Matthew ch: 10.md]] (votes: 3)
+- **Daniel 3:18** → **Matthew 10:39** [[Matthew ch: 10.md]] (votes: 11)
+- **Daniel 3:18** → **Leviticus 19:4** [[Leviticus ch: 19.md]] (votes: 4)
+- **Daniel 3:18** → **Daniel 3:28** [[Daniel ch: 3.md]] (votes: 6)
+- **Daniel 3:18** → **Matthew 16:2** [[Matthew ch: 16.md]] (votes: 0)
+- **Daniel 3:18** → **Joshua 24:15** [[Joshua ch: 24.md]] (votes: 6)
+- **Daniel 3:18** → **Revelation 12:11** [[Revelation ch: 12.md]] (votes: 6)
+- **Daniel 3:19** → **Daniel 6:24** [[Daniel ch: 6.md]] (votes: 2)
+- **Daniel 3:19** → **Genesis 31:2** [[Genesis ch: 31.md]] (votes: 2)
+- **Daniel 3:19** → **Psalms 76:10** [[Psalms ch: 76.md]] (votes: 3)
+- **Daniel 3:19** → **Acts 5:33** [[Acts ch: 5.md]] (votes: 3)
+- **Daniel 3:19** → **Acts 7:54** [[Acts ch: 7.md]] (votes: 2)
+- **Daniel 3:19** → **Proverbs 21:24** [[Proverbs ch: 21.md]] (votes: 4)
+- **Daniel 3:19** → **Esther 7:7** [[Esther ch: 7.md]] (votes: 2)
+- **Daniel 3:19** → **Leviticus 26:18** [[Leviticus ch: 26.md]] (votes: 3)
+- **Daniel 3:19** → **Isaiah 51:23** [[Isaiah ch: 51.md]] (votes: 2)
+- **Daniel 3:19** → **Leviticus 26:28** [[Leviticus ch: 26.md]] (votes: 4)
+- **Daniel 3:19** → **Proverbs 16:14** [[Proverbs ch: 16.md]] (votes: 2)
+- **Daniel 3:19** → **Leviticus 26:21** [[Leviticus ch: 26.md]] (votes: 3)
+- **Daniel 3:19** → **Leviticus 26:24** [[Leviticus ch: 26.md]] (votes: 6)
+- **Daniel 3:19** → **Daniel 3:13** [[Daniel ch: 3.md]] (votes: 7)
+- **Daniel 3:19** → **Daniel 5:6** [[Daniel ch: 5.md]] (votes: 3)
+- **Daniel 3:20** → **Daniel 3:15** [[Daniel ch: 3.md]] (votes: 3)
+- **Daniel 3:20** → **Acts 16:25** [[Acts ch: 16.md]] (votes: 3)
+- **Daniel 3:20** → **Acts 16:23** [[Acts ch: 16.md]] (votes: 3)
+- **Daniel 3:22** → **Daniel 6:24** [[Daniel ch: 6.md]] (votes: 2)
+- **Daniel 3:22** → **Proverbs 21:18** [[Proverbs ch: 21.md]] (votes: 3)
+- **Daniel 3:22** → **Acts 12:19** [[Acts ch: 12.md]] (votes: 2)
+- **Daniel 3:22** → **Daniel 2:15** [[Daniel ch: 2.md]] (votes: 2)
+- **Daniel 3:22** → **Exodus 12:33** [[Exodus ch: 12.md]] (votes: 3)
+- **Daniel 3:22** → **Proverbs 11:8** [[Proverbs ch: 11.md]] (votes: 3)
+- **Daniel 3:22** → **Matthew 27:5** [[Matthew ch: 27.md]] (votes: 2)
+- **Daniel 3:22** → **Daniel 1:7** [[Daniel ch: 1.md]] (votes: 2)
+- **Daniel 3:23** → **2 Corinthians 4:17** [[2 Corinthians ch: 4.md]] (votes: 2)
+- **Daniel 3:23** → **Jeremiah 38:6** [[Jeremiah ch: 38.md]] (votes: 4)
+- **Daniel 3:23** → **Psalms 34:19** [[Psalms ch: 34.md]] (votes: 3)
+- **Daniel 3:24** → **Daniel 5:18** [[Daniel ch: 5.md]] (votes: 2)
+- **Daniel 3:24** → **Acts 12:13** [[Acts ch: 12.md]] (votes: 2)
+- **Daniel 3:24** → **Acts 9:6** [[Acts ch: 9.md]] (votes: 2)
+- **Daniel 3:24** → **Acts 26:13** [[Acts ch: 26.md]] (votes: 2)
+- **Daniel 3:24** → **Daniel 4:22** [[Daniel ch: 4.md]] (votes: 2)
+- **Daniel 3:24** → **Daniel 6:22** [[Daniel ch: 6.md]] (votes: 3)
+- **Daniel 3:24** → **Acts 26:27** [[Acts ch: 26.md]] (votes: 2)
+- **Daniel 3:24** → **Daniel 6:7** [[Daniel ch: 6.md]] (votes: 3)
+- **Daniel 3:24** → **Daniel 3:17** [[Daniel ch: 3.md]] (votes: 2)
+- **Daniel 3:24** → **Daniel 5:6** [[Daniel ch: 5.md]] (votes: 2)
+- **Daniel 3:24** → **Daniel 4:27** [[Daniel ch: 4.md]] (votes: 2)
+- **Daniel 3:24** → **1 Samuel 17:55** [[1 Samuel ch: 17.md]] (votes: 2)
+- **Daniel 3:25** → **Romans 1:4** [[Romans ch: 1.md]] (votes: 5)
+- **Daniel 3:25** → **Luke 1:35** [[Luke ch: 1.md]] (votes: 4)
+- **Daniel 3:25** → **Isaiah 43:2** [[Isaiah ch: 43.md]] (votes: 27)
+- **Daniel 3:25** → **Acts 28:5** [[Acts ch: 28.md]] (votes: 13)
+- **Daniel 3:25** → **Psalms 34:7** [[Psalms ch: 34.md]] (votes: 8)
+- **Daniel 3:25** → **Job 38:7** [[Job ch: 38.md]] (votes: 6)
+- **Daniel 3:25** → **1 Peter 3:13** [[1 Peter ch: 3.md]] (votes: 7)
+- **Daniel 3:25** → **Mark 16:18** [[Mark ch: 16.md]] (votes: 11)
+- **Daniel 3:25** → **Daniel 3:28** [[Daniel ch: 3.md]] (votes: 8)
+- **Daniel 3:25** → **Proverbs 30:4** [[Proverbs ch: 30.md]] (votes: 4)
+- **Daniel 3:25** → **Daniel 3:18** [[Daniel ch: 3.md]] (votes: 6)
+- **Daniel 3:25** → **Job 1:6** [[Job ch: 1.md]] (votes: 9)
+- **Daniel 3:26** → **Joshua 4:10** [[Joshua ch: 4.md]] (votes: 3)
+- **Daniel 3:26** → **Acts 27:23** [[Acts ch: 27.md]] (votes: 2)
+- **Daniel 3:26** → **Genesis 14:18** [[Genesis ch: 14.md]] (votes: 3)
+- **Daniel 3:26** → **Daniel 4:2** [[Daniel ch: 4.md]] (votes: 4)
+- **Daniel 3:26** → **Daniel 2:47** [[Daniel ch: 2.md]] (votes: 3)
+- **Daniel 3:26** → **Acts 16:37** [[Acts ch: 16.md]] (votes: 2)
+- **Daniel 3:26** → **Ezra 5:11** [[Ezra ch: 5.md]] (votes: 2)
+- **Daniel 3:26** → **Joshua 3:17** [[Joshua ch: 3.md]] (votes: 3)
+- **Daniel 3:26** → **Daniel 6:20** [[Daniel ch: 6.md]] (votes: 2)
+- **Daniel 3:26** → **Galatians 1:10** [[Galatians ch: 1.md]] (votes: 3)
+- **Daniel 3:26** → **Isaiah 28:16** [[Isaiah ch: 28.md]] (votes: 2)
+- **Daniel 3:26** → **Isaiah 52:12** [[Isaiah ch: 52.md]] (votes: 4)
+- **Daniel 3:26** → **Acts 16:17** [[Acts ch: 16.md]] (votes: 3)
+- **Daniel 3:26** → **Revelation 19:5** [[Revelation ch: 19.md]] (votes: 4)
+- **Daniel 3:26** → **Daniel 3:17** [[Daniel ch: 3.md]] (votes: 6)
+- **Daniel 3:27** → **Hebrews 11:34** [[Hebrews ch: 11.md]] (votes: 8)
+- **Daniel 3:27** → **2 Kings 19:19** [[2 Kings ch: 19.md]] (votes: 3)
+- **Daniel 3:27** → **Isaiah 43:2** [[Isaiah ch: 43.md]] (votes: 10)
+- **Daniel 3:27** → **Psalms 83:18** [[Psalms ch: 83.md]] (votes: 3)
+- **Daniel 3:27** → **Acts 26:26** [[Acts ch: 26.md]] (votes: 1)
+- **Daniel 3:27** → **Acts 27:34** [[Acts ch: 27.md]] (votes: 4)
+- **Daniel 3:27** → **Isaiah 26:11** [[Isaiah ch: 26.md]] (votes: 5)
+- **Daniel 3:27** → **Daniel 3:21** [[Daniel ch: 3.md]] (votes: 2)
+- **Daniel 3:27** → **Matthew 10:30** [[Matthew ch: 10.md]] (votes: 4)
+- **Daniel 3:28** → **Isaiah 37:36** [[Isaiah ch: 37.md]] (votes: 3)
+- **Daniel 3:28** → **Psalms 33:18** [[Psalms ch: 33.md]] (votes: 2)
+- **Daniel 3:28** → **Daniel 3:25** [[Daniel ch: 3.md]] (votes: 5)
+- **Daniel 3:28** → **Revelation 12:11** [[Revelation ch: 12.md]] (votes: 8)
+- **Daniel 3:28** → **1 Chronicles 5:20** [[1 Chronicles ch: 5.md]] (votes: 3)
+- **Daniel 3:28** → **Ezra 1:3** [[Ezra ch: 1.md]] (votes: 2)
+- **Daniel 3:28** → **Genesis 9:26** [[Genesis ch: 9.md]] (votes: 2)
+- **Daniel 3:28** → **1 Peter 1:21** [[1 Peter ch: 1.md]] (votes: 2)
+- **Daniel 3:28** → **Daniel 4:34** [[Daniel ch: 4.md]] (votes: 2)
+- **Daniel 3:28** → **2 Chronicles 20:20** [[2 Chronicles ch: 20.md]] (votes: 3)
+- **Daniel 3:28** → **Daniel 6:26** [[Daniel ch: 6.md]] (votes: 2)
+- **Daniel 3:28** → **Acts 5:19** [[Acts ch: 5.md]] (votes: 5)
+- **Daniel 3:28** → **Philippians 1:20** [[Philippians ch: 1.md]] (votes: 3)
+- **Daniel 3:28** → **Exodus 20:5** [[Exodus ch: 20.md]] (votes: 9)
+- **Daniel 3:28** → **Hebrews 11:37** [[Hebrews ch: 11.md]] (votes: 2)
+- **Daniel 3:28** → **Psalms 34:22** [[Psalms ch: 34.md]] (votes: 2)
+- **Daniel 3:28** → **Romans 12:1** [[Romans ch: 12.md]] (votes: 6)
+- **Daniel 3:28** → **Matthew 4:10** [[Matthew ch: 4.md]] (votes: 5)
+- **Daniel 3:28** → **2 Chronicles 32:21** [[2 Chronicles ch: 32.md]] (votes: 3)
+- **Daniel 3:28** → **Acts 4:19** [[Acts ch: 4.md]] (votes: 2)
+- **Daniel 3:28** → **Psalms 103:20** [[Psalms ch: 103.md]] (votes: 1)
+- **Daniel 3:28** → **Psalms 62:8** [[Psalms ch: 62.md]] (votes: 3)
+- **Daniel 3:28** → **Daniel 2:47** [[Daniel ch: 2.md]] (votes: 4)
+- **Daniel 3:28** → **Psalms 33:21** [[Psalms ch: 33.md]] (votes: 2)
+- **Daniel 3:28** → **Hebrews 1:14** [[Hebrews ch: 1.md]] (votes: 2)
+- **Daniel 3:28** → **Psalms 147:11** [[Psalms ch: 147.md]] (votes: 6)
+- **Daniel 3:28** → **Ezra 6:11** [[Ezra ch: 6.md]] (votes: 2)
+- **Daniel 3:29** → **Psalms 76:10** [[Psalms ch: 76.md]] (votes: 2)
+- **Daniel 3:29** → **Deuteronomy 32:31** [[Deuteronomy ch: 32.md]] (votes: 2)
+- **Daniel 3:29** → **Daniel 3:15** [[Daniel ch: 3.md]] (votes: 1)
+- **Daniel 3:29** → **Daniel 3:28** [[Daniel ch: 3.md]] (votes: 1)
+- **Daniel 3:29** → **Psalms 3:8** [[Psalms ch: 3.md]] (votes: 1)
+- **Daniel 3:29** → **Daniel 3:17** [[Daniel ch: 3.md]] (votes: 1)
+- **Daniel 3:29** → **Ezra 6:11** [[Ezra ch: 6.md]] (votes: 1)
+- **Daniel 3:29** → **Daniel 2:5** [[Daniel ch: 2.md]] (votes: 3)
+- **Daniel 3:30** → **1 Samuel 2:30** [[1 Samuel ch: 2.md]] (votes: 3)
+- **Daniel 3:30** → **Psalms 91:14** [[Psalms ch: 91.md]] (votes: 2)
+- **Daniel 3:30** → **Psalms 1:3** [[Psalms ch: 1.md]] (votes: 2)
+- **Daniel 3:30** → **John 12:26** [[John ch: 12.md]] (votes: 2)
+- **Daniel 3:30** → **Daniel 2:49** [[Daniel ch: 2.md]] (votes: 3)
+- **Daniel 3:30** → **Daniel 3:12** [[Daniel ch: 3.md]] (votes: 2)
+- **Daniel 3:30** → **Romans 8:31** [[Romans ch: 8.md]] (votes: 2)

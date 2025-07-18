@@ -1,0 +1,178 @@
+# Song of Solomon 8
+
+**1** ¶ O that thou [wert] as my brother, that sucked the breasts of my mother! [when] I should find thee without, I would kiss thee; yea, I should not be despised.
+
+**2** I would lead thee, [and] bring thee into my mother's house, [who] would instruct me: I would cause thee to drink of spiced wine of the juice of my pomegranate.
+
+**3** His left hand [should be] under my head, and his right hand should embrace me.
+
+**4** I charge you, O daughters of Jerusalem, that ye stir not up, nor awake [my] love, until he please.
+
+**5** ¶ Who [is] this that cometh up from the wilderness, leaning upon her beloved? I raised thee up under the apple tree: there thy mother brought thee forth: there she brought thee forth [that] bare thee.
+
+**6** Set me as a seal upon thine heart, as a seal upon thine arm: for love [is] strong as death; jealousy [is] cruel as the grave: the coals thereof [are] coals of fire, [which hath a] most vehement flame.
+
+**7** Many waters cannot quench love, neither can the floods drown it: if [a] man would give all the substance of his house for love, it would utterly be contemned.
+
+**8** ¶ We have a little sister, and she hath no breasts: what shall we do for our sister in the day when she shall be spoken for?
+
+**9** If she [be] a wall, we will build upon her a palace of silver: and if she [be] a door, we will inclose her with boards of cedar.
+
+**10** I [am] a wall, and my breasts like towers: then was I in his eyes as one that found favour.
+
+**11** Solomon had a vineyard at Baalhamon; he let out the vineyard unto keepers; every one for the fruit thereof was to bring a thousand [pieces] of silver.
+
+**12** My vineyard, which [is] mine, [is] before me: thou, O Solomon, [must have] a thousand, and those that keep the fruit thereof two hundred.
+
+**13** ¶ Thou that dwellest in the gardens, the companions hearken to thy voice: cause me to hear [it].
+
+**14** Make haste, my beloved, and be thou like to a roe or to a young hart upon the mountains of spices.
+
+---
+
+## Cross-References
+
+- **Song of Solomon 8:1** → **1 Timothy 3:16** [[1 Timothy ch: 3.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Galatians 6:14** [[Galatians ch: 6.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Isaiah 9:6** [[Isaiah ch: 9.md]] (votes: 2)
+- **Song of Solomon 8:1** → **John 13:3** [[John ch: 13.md]] (votes: 1)
+- **Song of Solomon 8:1** → **1 Corinthians 1:28** [[1 Corinthians ch: 1.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Luke 10:16** [[Luke ch: 10.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Luke 12:8** [[Luke ch: 12.md]] (votes: 1)
+- **Song of Solomon 8:1** → **John 8:42** [[John ch: 8.md]] (votes: 1)
+- **Song of Solomon 8:1** → **John 1:14** [[John ch: 1.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Philippians 3:3** [[Philippians ch: 3.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Isaiah 60:14** [[Isaiah ch: 60.md]] (votes: 2)
+- **Song of Solomon 8:1** → **John 3:13** [[John ch: 3.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Psalms 51:17** [[Psalms ch: 51.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Psalms 2:12** [[Psalms ch: 2.md]] (votes: 1)
+- **Song of Solomon 8:1** → **John 16:28** [[John ch: 16.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Luke 18:9** [[Luke ch: 18.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Isaiah 7:14** [[Isaiah ch: 7.md]] (votes: 2)
+- **Song of Solomon 8:1** → **Haggai 2:7** [[Haggai ch: 2.md]] (votes: 2)
+- **Song of Solomon 8:1** → **Malachi 3:1** [[Malachi ch: 3.md]] (votes: 2)
+- **Song of Solomon 8:1** → **Luke 2:38** [[Luke ch: 2.md]] (votes: 2)
+- **Song of Solomon 8:1** → **Song of Solomon 1:2** [[Song of Solomon ch: 1.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Galatians 4:26** [[Galatians ch: 4.md]] (votes: 3)
+- **Song of Solomon 8:1** → **Luke 9:26** [[Luke ch: 9.md]] (votes: 1)
+- **Song of Solomon 8:1** → **Zechariah 9:9** [[Zechariah ch: 9.md]] (votes: 3)
+- **Song of Solomon 8:2** → **John 5:39** [[John ch: 5.md]] (votes: 2)
+- **Song of Solomon 8:2** → **2 Timothy 3:15** [[2 Timothy ch: 3.md]] (votes: 2)
+- **Song of Solomon 8:2** → **Galatians 4:26** [[Galatians ch: 4.md]] (votes: 3)
+- **Song of Solomon 8:2** → **Song of Solomon 7:12** [[Song of Solomon ch: 7.md]] (votes: 4)
+- **Song of Solomon 8:2** → **2 Peter 1:19** [[2 Peter ch: 1.md]] (votes: 0)
+- **Song of Solomon 8:2** → **Song of Solomon 7:9** [[Song of Solomon ch: 7.md]] (votes: 2)
+- **Song of Solomon 8:2** → **Revelation 19:10** [[Revelation ch: 19.md]] (votes: 0)
+- **Song of Solomon 8:2** → **Proverbs 9:2** [[Proverbs ch: 9.md]] (votes: 2)
+- **Song of Solomon 8:2** → **Song of Solomon 3:4** [[Song of Solomon ch: 3.md]] (votes: 6)
+- **Song of Solomon 8:3** → **2 Corinthians 12:9** [[2 Corinthians ch: 12.md]] (votes: 1)
+- **Song of Solomon 8:3** → **Song of Solomon 2:6** [[Song of Solomon ch: 2.md]] (votes: 6)
+- **Song of Solomon 8:3** → **Deuteronomy 33:27** [[Deuteronomy ch: 33.md]] (votes: 1)
+- **Song of Solomon 8:4** → **Song of Solomon 3:5** [[Song of Solomon ch: 3.md]] (votes: 8)
+- **Song of Solomon 8:4** → **Song of Solomon 2:7** [[Song of Solomon ch: 2.md]] (votes: 9)
+- **Song of Solomon 8:5** → **Isaiah 43:19** [[Isaiah ch: 43.md]] (votes: 2)
+- **Song of Solomon 8:5** → **Isaiah 36:6** [[Isaiah ch: 36.md]] (votes: 1)
+- **Song of Solomon 8:5** → **Song of Solomon 6:10** [[Song of Solomon ch: 6.md]] (votes: 3)
+- **Song of Solomon 8:5** → **Jeremiah 2:2** [[Jeremiah ch: 2.md]] (votes: 2)
+- **Song of Solomon 8:5** → **Psalms 63:8** [[Psalms ch: 63.md]] (votes: 4)
+- **Song of Solomon 8:5** → **Hosea 12:4** [[Hosea ch: 12.md]] (votes: 2)
+- **Song of Solomon 8:5** → **2 Chronicles 32:8** [[2 Chronicles ch: 32.md]] (votes: 2)
+- **Song of Solomon 8:5** → **Song of Solomon 2:3** [[Song of Solomon ch: 2.md]] (votes: 4)
+- **Song of Solomon 8:5** → **Micah 3:11** [[Micah ch: 3.md]] (votes: 3)
+- **Song of Solomon 8:5** → **John 13:23** [[John ch: 13.md]] (votes: 2)
+- **Song of Solomon 8:5** → **Galatians 4:19** [[Galatians ch: 4.md]] (votes: 1)
+- **Song of Solomon 8:5** → **Song of Solomon 3:6** [[Song of Solomon ch: 3.md]] (votes: 8)
+- **Song of Solomon 8:5** → **1 Peter 1:21** [[1 Peter ch: 1.md]] (votes: 2)
+- **Song of Solomon 8:5** → **Song of Solomon 8:1** [[Song of Solomon ch: 8.md]] (votes: 2)
+- **Song of Solomon 8:5** → **Romans 7:4** [[Romans ch: 7.md]] (votes: 1)
+- **Song of Solomon 8:5** → **Song of Solomon 3:4** [[Song of Solomon ch: 3.md]] (votes: 3)
+- **Song of Solomon 8:5** → **Song of Solomon 4:8** [[Song of Solomon ch: 4.md]] (votes: 1)
+- **Song of Solomon 8:5** → **Isaiah 40:3** [[Isaiah ch: 40.md]] (votes: 5)
+- **Song of Solomon 8:5** → **Revelation 12:6** [[Revelation ch: 12.md]] (votes: 1)
+- **Song of Solomon 8:5** → **Song of Solomon 3:11** [[Song of Solomon ch: 3.md]] (votes: 2)
+- **Song of Solomon 8:6** → **Numbers 25:11** [[Numbers ch: 25.md]] (votes: 3)
+- **Song of Solomon 8:6** → **Isaiah 49:16** [[Isaiah ch: 49.md]] (votes: 8)
+- **Song of Solomon 8:6** → **Proverbs 25:22** [[Proverbs ch: 25.md]] (votes: 3)
+- **Song of Solomon 8:6** → **Psalms 120:4** [[Psalms ch: 120.md]] (votes: 4)
+- **Song of Solomon 8:6** → **Revelation 12:11** [[Revelation ch: 12.md]] (votes: 10)
+- **Song of Solomon 8:6** → **Haggai 2:23** [[Haggai ch: 2.md]] (votes: 6)
+- **Song of Solomon 8:6** → **Acts 20:24** [[Acts ch: 20.md]] (votes: 3)
+- **Song of Solomon 8:6** → **Psalms 84:2** [[Psalms ch: 84.md]] (votes: 5)
+- **Song of Solomon 8:6** → **2 Corinthians 11:2** [[2 Corinthians ch: 11.md]] (votes: 3)
+- **Song of Solomon 8:6** → **Proverbs 6:34** [[Proverbs ch: 6.md]] (votes: 6)
+- **Song of Solomon 8:6** → **Romans 12:20** [[Romans ch: 12.md]] (votes: 3)
+- **Song of Solomon 8:6** → **Acts 21:13** [[Acts ch: 21.md]] (votes: 4)
+- **Song of Solomon 8:6** → **2 Timothy 2:19** [[2 Timothy ch: 2.md]] (votes: 3)
+- **Song of Solomon 8:6** → **Deuteronomy 32:21** [[Deuteronomy ch: 32.md]] (votes: 4)
+- **Song of Solomon 8:6** → **Zechariah 3:9** [[Zechariah ch: 3.md]] (votes: 3)
+- **Song of Solomon 8:6** → **Exodus 28:21** [[Exodus ch: 28.md]] (votes: 3)
+- **Song of Solomon 8:6** → **Jeremiah 22:24** [[Jeremiah ch: 22.md]] (votes: 5)
+- **Song of Solomon 8:6** → **Song of Solomon 5:8** [[Song of Solomon ch: 5.md]] (votes: 6)
+- **Song of Solomon 8:6** → **Numbers 5:14** [[Numbers ch: 5.md]] (votes: 5)
+- **Song of Solomon 8:6** → **Psalms 63:1** [[Psalms ch: 63.md]] (votes: 1)
+- **Song of Solomon 8:7** → **Proverbs 6:31** [[Proverbs ch: 6.md]] (votes: 5)
+- **Song of Solomon 8:7** → **Isaiah 43:2** [[Isaiah ch: 43.md]] (votes: 5)
+- **Song of Solomon 8:7** → **Proverbs 6:35** [[Proverbs ch: 6.md]] (votes: 7)
+- **Song of Solomon 8:8** → **John 10:16** [[John ch: 10.md]] (votes: 2)
+- **Song of Solomon 8:8** → **1 Peter 2:12** [[1 Peter ch: 2.md]] (votes: 3)
+- **Song of Solomon 8:8** → **Acts 22:21** [[Acts ch: 22.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Acts 16:9** [[Acts ch: 16.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Ezekiel 16:46** [[Ezekiel ch: 16.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Song of Solomon 8:10** [[Song of Solomon ch: 8.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Song of Solomon 7:3** [[Song of Solomon ch: 7.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Luke 19:44** [[Luke ch: 19.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Ezekiel 16:7** [[Ezekiel ch: 16.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Acts 7:38** [[Acts ch: 7.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Song of Solomon 4:5** [[Song of Solomon ch: 4.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Ezekiel 23:33** [[Ezekiel ch: 23.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Psalms 2:8** [[Psalms ch: 2.md]] (votes: 3)
+- **Song of Solomon 8:8** → **Ezekiel 16:61** [[Ezekiel ch: 16.md]] (votes: 2)
+- **Song of Solomon 8:8** → **Isaiah 49:6** [[Isaiah ch: 49.md]] (votes: 2)
+- **Song of Solomon 8:9** → **Isaiah 60:17** [[Isaiah ch: 60.md]] (votes: 2)
+- **Song of Solomon 8:9** → **Song of Solomon 2:9** [[Song of Solomon ch: 2.md]] (votes: 2)
+- **Song of Solomon 8:9** → **Isaiah 61:4** [[Isaiah ch: 61.md]] (votes: 2)
+- **Song of Solomon 8:9** → **Matthew 16:18** [[Matthew ch: 16.md]] (votes: 2)
+- **Song of Solomon 8:9** → **1 Kings 6:15** [[1 Kings ch: 6.md]] (votes: 2)
+- **Song of Solomon 8:9** → **Acts 15:16** [[Acts ch: 15.md]] (votes: 2)
+- **Song of Solomon 8:9** → **Isaiah 58:12** [[Isaiah ch: 58.md]] (votes: 2)
+- **Song of Solomon 8:9** → **Acts 14:27** [[Acts ch: 14.md]] (votes: 2)
+- **Song of Solomon 8:10** → **Ephesians 1:6** [[Ephesians ch: 1.md]] (votes: 3)
+- **Song of Solomon 8:10** → **Genesis 6:8** [[Genesis ch: 6.md]] (votes: 3)
+- **Song of Solomon 8:10** → **1 Timothy 1:16** [[1 Timothy ch: 1.md]] (votes: 3)
+- **Song of Solomon 8:10** → **Luke 1:30** [[Luke ch: 1.md]] (votes: 4)
+- **Song of Solomon 8:10** → **Isaiah 60:10** [[Isaiah ch: 60.md]] (votes: 4)
+- **Song of Solomon 8:10** → **Ezekiel 16:7** [[Ezekiel ch: 16.md]] (votes: 4)
+- **Song of Solomon 8:10** → **Proverbs 3:4** [[Proverbs ch: 3.md]] (votes: 3)
+- **Song of Solomon 8:10** → **Song of Solomon 4:5** [[Song of Solomon ch: 4.md]] (votes: 3)
+- **Song of Solomon 8:10** → **Ephesians 1:8** [[Ephesians ch: 1.md]] (votes: 2)
+- **Song of Solomon 8:11** → **Isaiah 7:23** [[Isaiah ch: 7.md]] (votes: 5)
+- **Song of Solomon 8:11** → **Ecclesiastes 2:4** [[Ecclesiastes ch: 2.md]] (votes: 6)
+- **Song of Solomon 8:11** → **Song of Solomon 1:6** [[Song of Solomon ch: 1.md]] (votes: 2)
+- **Song of Solomon 8:11** → **Song of Solomon 7:12** [[Song of Solomon ch: 7.md]] (votes: 2)
+- **Song of Solomon 8:11** → **Genesis 20:16** [[Genesis ch: 20.md]] (votes: 2)
+- **Song of Solomon 8:11** → **Mark 12:1** [[Mark ch: 12.md]] (votes: 2)
+- **Song of Solomon 8:12** → **Song of Solomon 1:6** [[Song of Solomon ch: 1.md]] (votes: 4)
+- **Song of Solomon 8:12** → **1 Thessalonians 2:19** [[1 Thessalonians ch: 2.md]] (votes: 2)
+- **Song of Solomon 8:12** → **Acts 20:28** [[Acts ch: 20.md]] (votes: 2)
+- **Song of Solomon 8:12** → **2 Corinthians 5:15** [[2 Corinthians ch: 5.md]] (votes: 2)
+- **Song of Solomon 8:12** → **Proverbs 4:23** [[Proverbs ch: 4.md]] (votes: 2)
+- **Song of Solomon 8:12** → **1 Corinthians 6:20** [[1 Corinthians ch: 6.md]] (votes: 2)
+- **Song of Solomon 8:13** → **Song of Solomon 4:16** [[Song of Solomon ch: 4.md]] (votes: 4)
+- **Song of Solomon 8:13** → **Judges 14:11** [[Judges ch: 14.md]] (votes: 2)
+- **Song of Solomon 8:13** → **Song of Solomon 6:11** [[Song of Solomon ch: 6.md]] (votes: 2)
+- **Song of Solomon 8:13** → **John 15:7** [[John ch: 15.md]] (votes: 1)
+- **Song of Solomon 8:13** → **Psalms 45:14** [[Psalms ch: 45.md]] (votes: 2)
+- **Song of Solomon 8:13** → **Song of Solomon 1:7** [[Song of Solomon ch: 1.md]] (votes: 3)
+- **Song of Solomon 8:13** → **Psalms 50:15** [[Psalms ch: 50.md]] (votes: 2)
+- **Song of Solomon 8:13** → **Matthew 18:20** [[Matthew ch: 18.md]] (votes: 2)
+- **Song of Solomon 8:13** → **John 16:24** [[John ch: 16.md]] (votes: 1)
+- **Song of Solomon 8:13** → **Matthew 28:20** [[Matthew ch: 28.md]] (votes: 2)
+- **Song of Solomon 8:13** → **Song of Solomon 6:2** [[Song of Solomon ch: 6.md]] (votes: 2)
+- **Song of Solomon 8:13** → **Judges 11:38** [[Judges ch: 11.md]] (votes: 2)
+- **Song of Solomon 8:14** → **Revelation 22:20** [[Revelation ch: 22.md]] (votes: 4)
+- **Song of Solomon 8:14** → **Song of Solomon 2:17** [[Song of Solomon ch: 2.md]] (votes: 5)
+- **Song of Solomon 8:14** → **Luke 19:12** [[Luke ch: 19.md]] (votes: 2)
+- **Song of Solomon 8:14** → **Philippians 1:23** [[Philippians ch: 1.md]] (votes: 2)
+- **Song of Solomon 8:14** → **Revelation 22:17** [[Revelation ch: 22.md]] (votes: 3)
+- **Song of Solomon 8:14** → **Song of Solomon 4:6** [[Song of Solomon ch: 4.md]] (votes: 2)
+- **Song of Solomon 8:14** → **Song of Solomon 2:9** [[Song of Solomon ch: 2.md]] (votes: 3)

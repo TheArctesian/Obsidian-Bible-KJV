@@ -1,0 +1,127 @@
+# Psalms 99
+
+**1** ¶ The LORD reigneth; let the people tremble: he sitteth [between] the cherubims; let the earth be moved.
+
+**2** The LORD [is] great in Zion; and he [is] high above all the people.
+
+**3** Let them praise thy great and terrible name; [for] it [is] holy.
+
+**4** The king's strength also loveth judgment; thou dost establish equity, thou executest judgment and righteousness in Jacob.
+
+**5** Exalt ye the LORD our God, and worship at his footstool; [for] he [is] holy.
+
+**6** ¶ Moses and Aaron among his priests, and Samuel among them that call upon his name; they called upon the LORD, and he answered them.
+
+**7** He spake unto them in the cloudy pillar: they kept his testimonies, and the ordinance [that] he gave them.
+
+**8** Thou answeredst them, O LORD our God: thou wast a God that forgavest them, though thou tookest vengeance of their inventions.
+
+**9** Exalt the LORD our God, and worship at his holy hill; for the LORD our God [is] holy.
+
+---
+
+## Cross-References
+
+- **Psalms 99:1** → **Jeremiah 4:24** [[Jeremiah ch: 4.md]] (votes: 4)
+- **Psalms 99:1** → **Jeremiah 50:46** [[Jeremiah ch: 50.md]] (votes: 4)
+- **Psalms 99:1** → **Luke 19:14** [[Luke ch: 19.md]] (votes: 4)
+- **Psalms 99:1** → **Psalms 97:1** [[Psalms ch: 97.md]] (votes: 8)
+- **Psalms 99:1** → **Psalms 82:5** [[Psalms ch: 82.md]] (votes: 3)
+- **Psalms 99:1** → **Psalms 97:4** [[Psalms ch: 97.md]] (votes: 6)
+- **Psalms 99:1** → **Jeremiah 49:21** [[Jeremiah ch: 49.md]] (votes: 4)
+- **Psalms 99:1** → **Revelation 6:14** [[Revelation ch: 6.md]] (votes: 4)
+- **Psalms 99:1** → **Luke 19:12** [[Luke ch: 19.md]] (votes: 4)
+- **Psalms 99:1** → **Psalms 2:6** [[Psalms ch: 2.md]] (votes: 4)
+- **Psalms 99:1** → **Revelation 20:11** [[Revelation ch: 20.md]] (votes: 5)
+- **Psalms 99:1** → **Jeremiah 5:22** [[Jeremiah ch: 5.md]] (votes: 4)
+- **Psalms 99:1** → **Isaiah 19:14** [[Isaiah ch: 19.md]] (votes: 4)
+- **Psalms 99:1** → **Exodus 25:22** [[Exodus ch: 25.md]] (votes: 7)
+- **Psalms 99:1** → **Revelation 11:17** [[Revelation ch: 11.md]] (votes: 4)
+- **Psalms 99:1** → **Philippians 2:12** [[Philippians ch: 2.md]] (votes: 4)
+- **Psalms 99:1** → **Psalms 93:1** [[Psalms ch: 93.md]] (votes: 6)
+- **Psalms 99:1** → **Psalms 18:10** [[Psalms ch: 18.md]] (votes: 4)
+- **Psalms 99:1** → **Psalms 96:10** [[Psalms ch: 96.md]] (votes: 4)
+- **Psalms 99:1** → **Psalms 80:1** [[Psalms ch: 80.md]] (votes: 6)
+- **Psalms 99:1** → **Luke 19:27** [[Luke ch: 19.md]] (votes: 4)
+- **Psalms 99:2** → **Psalms 113:4** [[Psalms ch: 113.md]] (votes: 2)
+- **Psalms 99:2** → **Psalms 66:7** [[Psalms ch: 66.md]] (votes: 2)
+- **Psalms 99:2** → **Psalms 50:2** [[Psalms ch: 50.md]] (votes: 2)
+- **Psalms 99:2** → **Psalms 97:9** [[Psalms ch: 97.md]] (votes: 9)
+- **Psalms 99:2** → **Isaiah 14:32** [[Isaiah ch: 14.md]] (votes: 4)
+- **Psalms 99:2** → **Isaiah 12:6** [[Isaiah ch: 12.md]] (votes: 3)
+- **Psalms 99:3** → **Psalms 76:1** [[Psalms ch: 76.md]] (votes: 2)
+- **Psalms 99:3** → **Deuteronomy 28:58** [[Deuteronomy ch: 28.md]] (votes: 6)
+- **Psalms 99:3** → **Psalms 145:17** [[Psalms ch: 145.md]] (votes: 3)
+- **Psalms 99:3** → **Psalms 66:3** [[Psalms ch: 66.md]] (votes: 3)
+- **Psalms 99:3** → **Nehemiah 9:32** [[Nehemiah ch: 9.md]] (votes: 1)
+- **Psalms 99:3** → **Nehemiah 1:5** [[Nehemiah ch: 1.md]] (votes: 3)
+- **Psalms 99:3** → **Revelation 4:8** [[Revelation ch: 4.md]] (votes: 3)
+- **Psalms 99:3** → **Psalms 76:12** [[Psalms ch: 76.md]] (votes: 1)
+- **Psalms 99:3** → **Deuteronomy 7:21** [[Deuteronomy ch: 7.md]] (votes: 3)
+- **Psalms 99:3** → **Nehemiah 4:14** [[Nehemiah ch: 4.md]] (votes: 3)
+- **Psalms 99:3** → **Isaiah 6:3** [[Isaiah ch: 6.md]] (votes: 9)
+- **Psalms 99:3** → **1 Samuel 2:2** [[1 Samuel ch: 2.md]] (votes: 2)
+- **Psalms 99:3** → **Jeremiah 20:11** [[Jeremiah ch: 20.md]] (votes: 1)
+- **Psalms 99:3** → **Psalms 111:9** [[Psalms ch: 111.md]] (votes: 4)
+- **Psalms 99:3** → **John 17:11** [[John ch: 17.md]] (votes: 3)
+- **Psalms 99:3** → **Joshua 24:19** [[Joshua ch: 24.md]] (votes: 2)
+- **Psalms 99:4** → **Deuteronomy 10:18** [[Deuteronomy ch: 10.md]] (votes: 2)
+- **Psalms 99:4** → **Revelation 19:16** [[Revelation ch: 19.md]] (votes: 3)
+- **Psalms 99:4** → **Psalms 11:7** [[Psalms ch: 11.md]] (votes: 6)
+- **Psalms 99:4** → **Job 37:23** [[Job ch: 37.md]] (votes: 2)
+- **Psalms 99:4** → **Revelation 19:11** [[Revelation ch: 19.md]] (votes: 1)
+- **Psalms 99:4** → **Isaiah 42:4** [[Isaiah ch: 42.md]] (votes: 1)
+- **Psalms 99:4** → **Isaiah 61:11** [[Isaiah ch: 61.md]] (votes: 1)
+- **Psalms 99:4** → **Psalms 98:9** [[Psalms ch: 98.md]] (votes: 1)
+- **Psalms 99:4** → **Isaiah 9:7** [[Isaiah ch: 9.md]] (votes: 2)
+- **Psalms 99:4** → **Jeremiah 23:5** [[Jeremiah ch: 23.md]] (votes: 3)
+- **Psalms 99:4** → **Jude 1:15** [[Jude ch: 1.md]] (votes: 1)
+- **Psalms 99:5** → **Psalms 34:3** [[Psalms ch: 34.md]] (votes: 5)
+- **Psalms 99:5** → **Psalms 99:9** [[Psalms ch: 99.md]] (votes: 3)
+- **Psalms 99:5** → **Isaiah 12:4** [[Isaiah ch: 12.md]] (votes: 4)
+- **Psalms 99:5** → **Leviticus 19:2** [[Leviticus ch: 19.md]] (votes: 3)
+- **Psalms 99:5** → **Psalms 21:13** [[Psalms ch: 21.md]] (votes: 3)
+- **Psalms 99:5** → **Psalms 99:3** [[Psalms ch: 99.md]] (votes: 4)
+- **Psalms 99:5** → **Psalms 107:32** [[Psalms ch: 107.md]] (votes: 3)
+- **Psalms 99:5** → **Psalms 118:28** [[Psalms ch: 118.md]] (votes: 3)
+- **Psalms 99:5** → **Hosea 11:7** [[Hosea ch: 11.md]] (votes: 1)
+- **Psalms 99:5** → **Exodus 15:2** [[Exodus ch: 15.md]] (votes: 5)
+- **Psalms 99:5** → **Isaiah 66:1** [[Isaiah ch: 66.md]] (votes: 6)
+- **Psalms 99:5** → **Isaiah 25:1** [[Isaiah ch: 25.md]] (votes: 4)
+- **Psalms 99:5** → **1 Chronicles 28:2** [[1 Chronicles ch: 28.md]] (votes: 2)
+- **Psalms 99:5** → **Psalms 132:7** [[Psalms ch: 132.md]] (votes: 10)
+- **Psalms 99:5** → **Psalms 108:5** [[Psalms ch: 108.md]] (votes: 6)
+- **Psalms 99:6** → **Jeremiah 15:1** [[Jeremiah ch: 15.md]] (votes: 9)
+- **Psalms 99:6** → **Exodus 15:25** [[Exodus ch: 15.md]] (votes: 3)
+- **Psalms 99:6** → **Exodus 14:15** [[Exodus ch: 14.md]] (votes: 3)
+- **Psalms 99:6** → **Exodus 32:30** [[Exodus ch: 32.md]] (votes: 2)
+- **Psalms 99:7** → **Hebrews 3:2** [[Hebrews ch: 3.md]] (votes: 3)
+- **Psalms 99:7** → **Numbers 12:5** [[Numbers ch: 12.md]] (votes: 6)
+- **Psalms 99:7** → **Deuteronomy 33:9** [[Deuteronomy ch: 33.md]] (votes: 2)
+- **Psalms 99:7** → **Deuteronomy 4:5** [[Deuteronomy ch: 4.md]] (votes: 4)
+- **Psalms 99:7** → **Exodus 33:9** [[Exodus ch: 33.md]] (votes: 7)
+- **Psalms 99:7** → **Exodus 19:9** [[Exodus ch: 19.md]] (votes: 3)
+- **Psalms 99:7** → **Psalms 105:28** [[Psalms ch: 105.md]] (votes: 2)
+- **Psalms 99:7** → **Numbers 16:15** [[Numbers ch: 16.md]] (votes: 1)
+- **Psalms 99:7** → **Proverbs 28:9** [[Proverbs ch: 28.md]] (votes: 2)
+- **Psalms 99:7** → **Exodus 40:16** [[Exodus ch: 40.md]] (votes: 2)
+- **Psalms 99:8** → **Numbers 20:12** [[Numbers ch: 20.md]] (votes: 5)
+- **Psalms 99:8** → **Zephaniah 3:7** [[Zephaniah ch: 3.md]] (votes: 0)
+- **Psalms 99:8** → **Deuteronomy 3:26** [[Deuteronomy ch: 3.md]] (votes: 0)
+- **Psalms 99:8** → **Exodus 32:2** [[Exodus ch: 32.md]] (votes: 0)
+- **Psalms 99:8** → **Jeremiah 46:28** [[Jeremiah ch: 46.md]] (votes: 3)
+- **Psalms 99:8** → **Ecclesiastes 7:29** [[Ecclesiastes ch: 7.md]] (votes: 2)
+- **Psalms 99:8** → **Romans 1:21** [[Romans ch: 1.md]] (votes: 0)
+- **Psalms 99:8** → **Numbers 20:24** [[Numbers ch: 20.md]] (votes: 0)
+- **Psalms 99:8** → **Psalms 89:33** [[Psalms ch: 89.md]] (votes: 4)
+- **Psalms 99:9** → **Isaiah 5:16** [[Isaiah ch: 5.md]] (votes: 4)
+- **Psalms 99:9** → **Revelation 3:7** [[Revelation ch: 3.md]] (votes: 2)
+- **Psalms 99:9** → **Psalms 99:3** [[Psalms ch: 99.md]] (votes: 2)
+- **Psalms 99:9** → **Psalms 99:5** [[Psalms ch: 99.md]] (votes: 2)
+- **Psalms 99:9** → **Luke 1:49** [[Luke ch: 1.md]] (votes: 7)
+- **Psalms 99:9** → **Revelation 4:8** [[Revelation ch: 4.md]] (votes: 4)
+- **Psalms 99:9** → **Isaiah 57:15** [[Isaiah ch: 57.md]] (votes: 5)
+- **Psalms 99:9** → **Habakkuk 1:12** [[Habakkuk ch: 1.md]] (votes: 2)
+- **Psalms 99:9** → **1 Samuel 2:2** [[1 Samuel ch: 2.md]] (votes: 3)
+- **Psalms 99:9** → **Psalms 2:6** [[Psalms ch: 2.md]] (votes: 3)
+- **Psalms 99:9** → **Isaiah 6:3** [[Isaiah ch: 6.md]] (votes: 3)

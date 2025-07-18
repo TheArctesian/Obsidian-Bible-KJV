@@ -1,0 +1,95 @@
+# Psalms 53
+
+**1** ¶ To the chief Musician upon Mahalath, Maschil, [A Psalm] of David. The fool hath said in his heart, [There is] no God. Corrupt are they, and have done abominable iniquity: [there is] none that doeth good.
+
+**2** God looked down from heaven upon the children of men, to see if there were [any] that did understand, that did seek God.
+
+**3** Every one of them is gone back: they are altogether become filthy; [there is] none that doeth good, no, not one.
+
+**4** Have the workers of iniquity no knowledge? who eat up my people [as] they eat bread: they have not called upon God.
+
+**5** There were they in great fear, [where] no fear was: for God hath scattered the bones of him that encampeth [against] thee: thou hast put [them] to shame, because God hath despised them.
+
+**6** Oh that the salvation of Israel [were come] out of Zion! When God bringeth back the captivity of his people, Jacob shall rejoice, [and] Israel shall be glad.
+
+---
+
+## Cross-References
+
+- **Psalms 53:1** → **Job 14:4** [[Job ch: 14.md]] (votes: 1)
+- **Psalms 53:1** → **1 Peter 4:3** [[1 Peter ch: 4.md]] (votes: 1)
+- **Psalms 53:1** → **Ephesians 5:12** [[Ephesians ch: 5.md]] (votes: 1)
+- **Psalms 53:1** → **Psalms 10:4** [[Psalms ch: 10.md]] (votes: 6)
+- **Psalms 53:1** → **Romans 1:28** [[Romans ch: 1.md]] (votes: 2)
+- **Psalms 53:1** → **Matthew 5:22** [[Matthew ch: 5.md]] (votes: 1)
+- **Psalms 53:1** → **Psalms 10:11** [[Psalms ch: 10.md]] (votes: 2)
+- **Psalms 53:1** → **Psalms 10:13** [[Psalms ch: 10.md]] (votes: 2)
+- **Psalms 53:1** → **Romans 1:21** [[Romans ch: 1.md]] (votes: 0)
+- **Psalms 53:1** → **Psalms 92:6** [[Psalms ch: 92.md]] (votes: 0)
+- **Psalms 53:1** → **Psalms 10:6** [[Psalms ch: 10.md]] (votes: 1)
+- **Psalms 53:1** → **Psalms 88:1** [[Psalms ch: 88.md]] (votes: 1)
+- **Psalms 53:1** → **Deuteronomy 12:31** [[Deuteronomy ch: 12.md]] (votes: 1)
+- **Psalms 53:1** → **Ezekiel 16:51** [[Ezekiel ch: 16.md]] (votes: 0)
+- **Psalms 53:1** → **Luke 12:20** [[Luke ch: 12.md]] (votes: 2)
+- **Psalms 53:1** → **Ezekiel 16:47** [[Ezekiel ch: 16.md]] (votes: 0)
+- **Psalms 53:1** → **Job 15:16** [[Job ch: 15.md]] (votes: 2)
+- **Psalms 53:1** → **1 Kings 14:24** [[1 Kings ch: 14.md]] (votes: 2)
+- **Psalms 53:1** → **1 Kings 12:26** [[1 Kings ch: 12.md]] (votes: 1)
+- **Psalms 53:2** → **2 Chronicles 19:3** [[2 Chronicles ch: 19.md]] (votes: 7)
+- **Psalms 53:2** → **Jeremiah 23:24** [[Jeremiah ch: 23.md]] (votes: 7)
+- **Psalms 53:2** → **Psalms 27:8** [[Psalms ch: 27.md]] (votes: 8)
+- **Psalms 53:2** → **Psalms 10:4** [[Psalms ch: 10.md]] (votes: 4)
+- **Psalms 53:2** → **Isaiah 55:6** [[Isaiah ch: 55.md]] (votes: 13)
+- **Psalms 53:2** → **Psalms 111:10** [[Psalms ch: 111.md]] (votes: 7)
+- **Psalms 53:2** → **Deuteronomy 4:6** [[Deuteronomy ch: 4.md]] (votes: 4)
+- **Psalms 53:2** → **2 Chronicles 15:2** [[2 Chronicles ch: 15.md]] (votes: 10)
+- **Psalms 53:2** → **1 Chronicles 28:9** [[1 Chronicles ch: 28.md]] (votes: 4)
+- **Psalms 53:2** → **Job 28:28** [[Job ch: 28.md]] (votes: 4)
+- **Psalms 53:2** → **Psalms 11:4** [[Psalms ch: 11.md]] (votes: 4)
+- **Psalms 53:2** → **Psalms 102:19** [[Psalms ch: 102.md]] (votes: 5)
+- **Psalms 53:2** → **Jeremiah 16:17** [[Jeremiah ch: 16.md]] (votes: 7)
+- **Psalms 53:3** → **Zephaniah 1:6** [[Zephaniah ch: 1.md]] (votes: 1)
+- **Psalms 53:3** → **Isaiah 53:6** [[Isaiah ch: 53.md]] (votes: 5)
+- **Psalms 53:3** → **Revelation 22:11** [[Revelation ch: 22.md]] (votes: 1)
+- **Psalms 53:3** → **2 Corinthians 7:1** [[2 Corinthians ch: 7.md]] (votes: 1)
+- **Psalms 53:3** → **1 John 2:29** [[1 John ch: 2.md]] (votes: 1)
+- **Psalms 53:3** → **Isaiah 64:6** [[Isaiah ch: 64.md]] (votes: 7)
+- **Psalms 53:3** → **Job 15:16** [[Job ch: 15.md]] (votes: 1)
+- **Psalms 53:3** → **2 Samuel 20:2** [[2 Samuel ch: 20.md]] (votes: 1)
+- **Psalms 53:3** → **Romans 3:12** [[Romans ch: 3.md]] (votes: 9)
+- **Psalms 53:3** → **Ezekiel 36:25** [[Ezekiel ch: 36.md]] (votes: 1)
+- **Psalms 53:3** → **3 John 1:11** [[3 John ch: 1.md]] (votes: 2)
+- **Psalms 53:3** → **Psalms 14:3** [[Psalms ch: 14.md]] (votes: 6)
+- **Psalms 53:4** → **Jeremiah 4:22** [[Jeremiah ch: 4.md]] (votes: 7)
+- **Psalms 53:4** → **Psalms 94:8** [[Psalms ch: 94.md]] (votes: 2)
+- **Psalms 53:4** → **Isaiah 27:11** [[Isaiah ch: 27.md]] (votes: 2)
+- **Psalms 53:4** → **Jeremiah 10:25** [[Jeremiah ch: 10.md]] (votes: 5)
+- **Psalms 53:4** → **Revelation 17:16** [[Revelation ch: 17.md]] (votes: 2)
+- **Psalms 53:4** → **Psalms 27:2** [[Psalms ch: 27.md]] (votes: 3)
+- **Psalms 53:5** → **Lamentations 2:6** [[Lamentations ch: 2.md]] (votes: 2)
+- **Psalms 53:5** → **Psalms 141:7** [[Psalms ch: 141.md]] (votes: 5)
+- **Psalms 53:5** → **Psalms 40:14** [[Psalms ch: 40.md]] (votes: 3)
+- **Psalms 53:5** → **Ezekiel 6:5** [[Ezekiel ch: 6.md]] (votes: 5)
+- **Psalms 53:5** → **Psalms 14:5** [[Psalms ch: 14.md]] (votes: 3)
+- **Psalms 53:5** → **1 Samuel 14:15** [[1 Samuel ch: 14.md]] (votes: 4)
+- **Psalms 53:5** → **Proverbs 28:1** [[Proverbs ch: 28.md]] (votes: 9)
+- **Psalms 53:5** → **Psalms 35:4** [[Psalms ch: 35.md]] (votes: 3)
+- **Psalms 53:5** → **Psalms 73:20** [[Psalms ch: 73.md]] (votes: 3)
+- **Psalms 53:5** → **Jeremiah 6:30** [[Jeremiah ch: 6.md]] (votes: 5)
+- **Psalms 53:5** → **Psalms 35:26** [[Psalms ch: 35.md]] (votes: 3)
+- **Psalms 53:5** → **Leviticus 26:36** [[Leviticus ch: 26.md]] (votes: 7)
+- **Psalms 53:5** → **Leviticus 26:17** [[Leviticus ch: 26.md]] (votes: 6)
+- **Psalms 53:5** → **Psalms 2:4** [[Psalms ch: 2.md]] (votes: 3)
+- **Psalms 53:5** → **Job 15:21** [[Job ch: 15.md]] (votes: 2)
+- **Psalms 53:6** → **Psalms 14:7** [[Psalms ch: 14.md]] (votes: 7)
+- **Psalms 53:6** → **Jeremiah 31:23** [[Jeremiah ch: 31.md]] (votes: 2)
+- **Psalms 53:6** → **Ezra 3:11** [[Ezra ch: 3.md]] (votes: 2)
+- **Psalms 53:6** → **Amos 9:14** [[Amos ch: 9.md]] (votes: 2)
+- **Psalms 53:6** → **Isaiah 12:6** [[Isaiah ch: 12.md]] (votes: 4)
+- **Psalms 53:6** → **Joel 3:1** [[Joel ch: 3.md]] (votes: 2)
+- **Psalms 53:6** → **Psalms 50:2** [[Psalms ch: 50.md]] (votes: 2)
+- **Psalms 53:6** → **Isaiah 14:32** [[Isaiah ch: 14.md]] (votes: 3)
+- **Psalms 53:6** → **Job 42:10** [[Job ch: 42.md]] (votes: 2)
+- **Psalms 53:6** → **Jeremiah 30:18** [[Jeremiah ch: 30.md]] (votes: 5)
+- **Psalms 53:6** → **Psalms 85:1** [[Psalms ch: 85.md]] (votes: 3)
+- **Psalms 53:6** → **Nehemiah 12:43** [[Nehemiah ch: 12.md]] (votes: 3)

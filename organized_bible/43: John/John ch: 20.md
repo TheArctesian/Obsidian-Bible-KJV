@@ -1,0 +1,346 @@
+# John 20
+
+**1** ¶ The first [day] of the week cometh Mary Magdalene early, when it was yet dark, unto the sepulchre, and seeth the stone taken away from the sepulchre.
+
+**2** Then she runneth, and cometh to Simon Peter, and to the other disciple, whom Jesus loved, and saith unto them, They have taken away the Lord out of the sepulchre, and we know not where they have laid him.
+
+**3** Peter therefore went forth, and that other disciple, and came to the sepulchre.
+
+**4** So they ran both together: and the other disciple did outrun Peter, and came first to the sepulchre.
+
+**5** And he stooping down, [and looking in], saw the linen clothes lying; yet went he not in.
+
+**6** Then cometh Simon Peter following him, and went into the sepulchre, and seeth the linen clothes lie,
+
+**7** And the napkin, that was about his head, not lying with the linen clothes, but wrapped together in a place by itself.
+
+**8** Then went in also that other disciple, which came first to the sepulchre, and he saw, and believed.
+
+**9** For as yet they knew not the scripture, that he must rise again from the dead.
+
+**10** Then the disciples went away again unto their own home.
+
+**11** ¶ But Mary stood without at the sepulchre weeping: and as she wept, she stooped down, [and looked] into the sepulchre,
+
+**12** And seeth two angels in white sitting, the one at the head, and the other at the feet, where the body of Jesus had lain.
+
+**13** And they say unto her, Woman, why weepest thou? She saith unto them, Because they have taken away my Lord, and I know not where they have laid him.
+
+**14** And when she had thus said, she turned herself back, and saw Jesus standing, and knew not that it was Jesus.
+
+**15** Jesus saith unto her, ‹Woman, why weepest thou? whom seekest thou?› She, supposing him to be the gardener, saith unto him, Sir, if thou have borne him hence, tell me where thou hast laid him, and I will take him away.
+
+**16** Jesus saith unto her, ‹Mary.› She turned herself, and saith unto him, Rabboni; which is to say, Master.
+
+**17** Jesus saith unto her, ‹Touch me not; for I am not yet ascended to my Father: but go to my brethren, and say unto them, I ascend unto my Father, and your Father; and› [to] ‹my God, and your God.›
+
+**18** Mary Magdalene came and told the disciples that she had seen the Lord, and [that] he had spoken these things unto her.
+
+**19** ¶ Then the same day at evening, being the first [day] of the week, when the doors were shut where the disciples were assembled for fear of the Jews, came Jesus and stood in the midst, and saith unto them, ‹Peace› [be] ‹unto you.›
+
+**20** And when he had so said, he shewed unto them [his] hands and his side. Then were the disciples glad, when they saw the Lord.
+
+**21** Then said Jesus to them again, ‹Peace› [be] ‹unto you: as› [my] ‹Father hath sent me, even so send I you.›
+
+**22** And when he had said this, he breathed on [them], and saith unto them, ‹Receive ye the Holy Ghost:›
+
+**23** ‹Whose soever sins ye remit, they are remitted unto them;› [and] ‹whose soever› [sins] ‹ye retain, they are retained.›
+
+**24** But Thomas, one of the twelve, called Didymus, was not with them when Jesus came.
+
+**25** The other disciples therefore said unto him, We have seen the Lord. But he said unto them, Except I shall see in his hands the print of the nails, and put my finger into the print of the nails, and thrust my hand into his side, I will not believe.
+
+**26** ¶ And after eight days again his disciples were within, and Thomas with them: [then] came Jesus, the doors being shut, and stood in the midst, and said, ‹Peace› [be] ‹unto you.›
+
+**27** Then saith he to Thomas, ‹Reach hither thy finger, and behold my hands; and reach hither thy hand, and thrust› [it] ‹into my side: and be not faithless, but believing.›
+
+**28** And Thomas answered and said unto him, My Lord and my God.
+
+**29** Jesus saith unto him, ‹Thomas, because thou hast seen me, thou hast believed: blessed› [are] ‹they that have not seen, and› [yet] ‹have believed.›
+
+**30** And many other signs truly did Jesus in the presence of his disciples, which are not written in this book:
+
+**31** But these are written, that ye might believe that Jesus is the Christ, the Son of God; and that believing ye might have life through his name.
+
+---
+
+## Cross-References
+
+- **John 20:1** → **1 Corinthians 16:2** [[1 Corinthians ch: 16.md]] (votes: 3)
+- **John 20:1** → **John 19:25** [[John ch: 19.md]] (votes: 5)
+- **John 20:1** → **Acts 20:7** [[Acts ch: 20.md]] (votes: 1)
+- **John 20:1** → **Matthew 27:60** [[Matthew ch: 27.md]] (votes: 6)
+- **John 20:1** → **John 20:26** [[John ch: 20.md]] (votes: 4)
+- **John 20:1** → **Mark 16:9** [[Mark ch: 16.md]] (votes: 7)
+- **John 20:1** → **Revelation 1:10** [[Revelation ch: 1.md]] (votes: 4)
+- **John 20:1** → **Mark 15:46** [[Mark ch: 15.md]] (votes: 5)
+- **John 20:2** → **John 21:24** [[John ch: 21.md]] (votes: 3)
+- **John 20:2** → **John 19:26** [[John ch: 19.md]] (votes: 3)
+- **John 20:2** → **John 21:20** [[John ch: 21.md]] (votes: 2)
+- **John 20:2** → **John 20:15** [[John ch: 20.md]] (votes: 1)
+- **John 20:2** → **John 21:7** [[John ch: 21.md]] (votes: 2)
+- **John 20:2** → **John 13:23** [[John ch: 13.md]] (votes: 6)
+- **John 20:2** → **John 20:9** [[John ch: 20.md]] (votes: 1)
+- **John 20:2** → **John 20:13** [[John ch: 20.md]] (votes: 4)
+- **John 20:3** → **Luke 24:12** [[Luke ch: 24.md]] (votes: 5)
+- **John 20:4** → **2 Samuel 18:23** [[2 Samuel ch: 18.md]] (votes: 2)
+- **John 20:4** → **1 Corinthians 9:24** [[1 Corinthians ch: 9.md]] (votes: 0)
+- **John 20:4** → **2 Corinthians 8:12** [[2 Corinthians ch: 8.md]] (votes: 0)
+- **John 20:4** → **Leviticus 13:30** [[Leviticus ch: 13.md]] (votes: -2)
+- **John 20:5** → **John 19:40** [[John ch: 19.md]] (votes: 5)
+- **John 20:5** → **John 11:44** [[John ch: 11.md]] (votes: 2)
+- **John 20:5** → **John 20:11** [[John ch: 20.md]] (votes: 2)
+- **John 20:6** → **John 21:7** [[John ch: 21.md]] (votes: 2)
+- **John 20:6** → **John 18:17** [[John ch: 18.md]] (votes: 2)
+- **John 20:7** → **John 11:44** [[John ch: 11.md]] (votes: 4)
+- **John 20:8** → **John 20:25** [[John ch: 20.md]] (votes: 4)
+- **John 20:8** → **John 20:29** [[John ch: 20.md]] (votes: 2)
+- **John 20:8** → **John 20:4** [[John ch: 20.md]] (votes: 3)
+- **John 20:8** → **John 1:50** [[John ch: 1.md]] (votes: 2)
+- **John 20:9** → **1 Corinthians 15:4** [[1 Corinthians ch: 15.md]] (votes: 7)
+- **John 20:9** → **Isaiah 25:8** [[Isaiah ch: 25.md]] (votes: 12)
+- **John 20:9** → **Isaiah 26:19** [[Isaiah ch: 26.md]] (votes: 8)
+- **John 20:9** → **Hosea 13:14** [[Hosea ch: 13.md]] (votes: 4)
+- **John 20:9** → **Psalms 16:10** [[Psalms ch: 16.md]] (votes: 21)
+- **John 20:9** → **John 2:22** [[John ch: 2.md]] (votes: 3)
+- **John 20:9** → **Luke 9:45** [[Luke ch: 9.md]] (votes: 3)
+- **John 20:9** → **Matthew 22:29** [[Matthew ch: 22.md]] (votes: 5)
+- **John 20:9** → **Luke 24:26** [[Luke ch: 24.md]] (votes: 6)
+- **John 20:9** → **Psalms 22:15** [[Psalms ch: 22.md]] (votes: 3)
+- **John 20:10** → **John 7:53** [[John ch: 7.md]] (votes: 2)
+- **John 20:10** → **John 16:32** [[John ch: 16.md]] (votes: 2)
+- **John 20:11** → **John 20:5** [[John ch: 20.md]] (votes: 5)
+- **John 20:12** → **2 Chronicles 5:12** [[2 Chronicles ch: 5.md]] (votes: 2)
+- **John 20:12** → **Daniel 7:9** [[Daniel ch: 7.md]] (votes: 2)
+- **John 20:12** → **Revelation 7:14** [[Revelation ch: 7.md]] (votes: 2)
+- **John 20:12** → **Revelation 3:4** [[Revelation ch: 3.md]] (votes: 3)
+- **John 20:12** → **Acts 1:10** [[Acts ch: 1.md]] (votes: 2)
+- **John 20:12** → **Matthew 17:2** [[Matthew ch: 17.md]] (votes: 2)
+- **John 20:13** → **John 19:26** [[John ch: 19.md]] (votes: 2)
+- **John 20:13** → **John 20:15** [[John ch: 20.md]] (votes: 5)
+- **John 20:13** → **Jeremiah 31:16** [[Jeremiah ch: 31.md]] (votes: 1)
+- **John 20:13** → **Ecclesiastes 3:4** [[Ecclesiastes ch: 3.md]] (votes: 2)
+- **John 20:13** → **John 20:2** [[John ch: 20.md]] (votes: 2)
+- **John 20:13** → **Luke 24:17** [[Luke ch: 24.md]] (votes: 2)
+- **John 20:13** → **1 Samuel 1:8** [[1 Samuel ch: 1.md]] (votes: 3)
+- **John 20:13** → **John 2:4** [[John ch: 2.md]] (votes: 3)
+- **John 20:13** → **Acts 21:13** [[Acts ch: 21.md]] (votes: 2)
+- **John 20:14** → **Luke 24:16** [[Luke ch: 24.md]] (votes: 6)
+- **John 20:14** → **Matthew 28:9** [[Matthew ch: 28.md]] (votes: 5)
+- **John 20:14** → **John 21:4** [[John ch: 21.md]] (votes: 5)
+- **John 20:14** → **John 8:59** [[John ch: 8.md]] (votes: 3)
+- **John 20:14** → **Mark 16:12** [[Mark ch: 16.md]] (votes: 2)
+- **John 20:14** → **Mark 16:9** [[Mark ch: 16.md]] (votes: 5)
+- **John 20:14** → **Luke 24:31** [[Luke ch: 24.md]] (votes: 3)
+- **John 20:14** → **Luke 4:30** [[Luke ch: 4.md]] (votes: 1)
+- **John 20:15** → **Matthew 12:34** [[Matthew ch: 12.md]] (votes: 2)
+- **John 20:15** → **John 18:7** [[John ch: 18.md]] (votes: 6)
+- **John 20:15** → **Luke 24:5** [[Luke ch: 24.md]] (votes: 3)
+- **John 20:15** → **John 20:13** [[John ch: 20.md]] (votes: 6)
+- **John 20:15** → **Song of Solomon 3:2** [[Song of Solomon ch: 3.md]] (votes: 4)
+- **John 20:15** → **Mark 16:6** [[Mark ch: 16.md]] (votes: 4)
+- **John 20:15** → **John 18:4** [[John ch: 18.md]] (votes: 4)
+- **John 20:15** → **John 1:38** [[John ch: 1.md]] (votes: 5)
+- **John 20:15** → **1 Samuel 1:16** [[1 Samuel ch: 1.md]] (votes: 4)
+- **John 20:15** → **Song of Solomon 6:1** [[Song of Solomon ch: 6.md]] (votes: 2)
+- **John 20:15** → **Matthew 28:5** [[Matthew ch: 28.md]] (votes: 4)
+- **John 20:16** → **John 20:28** [[John ch: 20.md]] (votes: 1)
+- **John 20:16** → **John 5:2** [[John ch: 5.md]] (votes: 1)
+- **John 20:16** → **1 Samuel 3:6** [[1 Samuel ch: 3.md]] (votes: 1)
+- **John 20:16** → **Acts 9:4** [[Acts ch: 9.md]] (votes: 2)
+- **John 20:16** → **Genesis 22:1** [[Genesis ch: 22.md]] (votes: 1)
+- **John 20:16** → **John 1:49** [[John ch: 1.md]] (votes: 1)
+- **John 20:16** → **Song of Solomon 3:4** [[Song of Solomon ch: 3.md]] (votes: 1)
+- **John 20:16** → **Genesis 45:12** [[Genesis ch: 45.md]] (votes: 1)
+- **John 20:16** → **Genesis 22:11** [[Genesis ch: 22.md]] (votes: 2)
+- **John 20:16** → **Exodus 33:17** [[Exodus ch: 33.md]] (votes: 1)
+- **John 20:16** → **John 11:28** [[John ch: 11.md]] (votes: 1)
+- **John 20:16** → **John 6:25** [[John ch: 6.md]] (votes: 2)
+- **John 20:16** → **Song of Solomon 5:2** [[Song of Solomon ch: 5.md]] (votes: 1)
+- **John 20:16** → **Exodus 3:4** [[Exodus ch: 3.md]] (votes: 1)
+- **John 20:16** → **Luke 10:41** [[Luke ch: 10.md]] (votes: 1)
+- **John 20:16** → **Isaiah 43:1** [[Isaiah ch: 43.md]] (votes: 2)
+- **John 20:16** → **John 1:38** [[John ch: 1.md]] (votes: 3)
+- **John 20:16** → **Acts 10:3** [[Acts ch: 10.md]] (votes: 2)
+- **John 20:16** → **John 10:3** [[John ch: 10.md]] (votes: 5)
+- **John 20:16** → **John 3:2** [[John ch: 3.md]] (votes: 1)
+- **John 20:16** → **John 13:13** [[John ch: 13.md]] (votes: 1)
+- **John 20:16** → **Matthew 14:27** [[Matthew ch: 14.md]] (votes: 1)
+- **John 20:16** → **1 Samuel 3:10** [[1 Samuel ch: 3.md]] (votes: 1)
+- **John 20:17** → **Luke 10:4** [[Luke ch: 10.md]] (votes: 4)
+- **John 20:17** → **Galatians 3:26** [[Galatians ch: 3.md]] (votes: 9)
+- **John 20:17** → **Matthew 12:50** [[Matthew ch: 12.md]] (votes: 5)
+- **John 20:17** → **Isaiah 41:10** [[Isaiah ch: 41.md]] (votes: 2)
+- **John 20:17** → **Hebrews 11:16** [[Hebrews ch: 11.md]] (votes: 2)
+- **John 20:17** → **Mark 16:19** [[Mark ch: 16.md]] (votes: 7)
+- **John 20:17** → **Revelation 21:3** [[Revelation ch: 21.md]] (votes: 4)
+- **John 20:17** → **John 14:6** [[John ch: 14.md]] (votes: 6)
+- **John 20:17** → **Psalms 48:14** [[Psalms ch: 48.md]] (votes: 3)
+- **John 20:17** → **2 Corinthians 6:18** [[2 Corinthians ch: 6.md]] (votes: 5)
+- **John 20:17** → **John 7:33** [[John ch: 7.md]] (votes: 5)
+- **John 20:17** → **John 13:3** [[John ch: 13.md]] (votes: 4)
+- **John 20:17** → **Ezekiel 36:28** [[Ezekiel ch: 36.md]] (votes: 4)
+- **John 20:17** → **1 John 3:2** [[1 John ch: 3.md]] (votes: 6)
+- **John 20:17** → **2 Kings 7:9** [[2 Kings ch: 7.md]] (votes: 3)
+- **John 20:17** → **John 20:27** [[John ch: 20.md]] (votes: 4)
+- **John 20:17** → **Psalms 89:26** [[Psalms ch: 89.md]] (votes: 4)
+- **John 20:17** → **Psalms 68:18** [[Psalms ch: 68.md]] (votes: 8)
+- **John 20:17** → **Jeremiah 31:33** [[Jeremiah ch: 31.md]] (votes: 4)
+- **John 20:17** → **Psalms 43:4** [[Psalms ch: 43.md]] (votes: 3)
+- **John 20:17** → **Ezekiel 37:27** [[Ezekiel ch: 37.md]] (votes: 4)
+- **John 20:17** → **Revelation 21:7** [[Revelation ch: 21.md]] (votes: 4)
+- **John 20:17** → **1 Peter 1:3** [[1 Peter ch: 1.md]] (votes: 10)
+- **John 20:17** → **Psalms 22:22** [[Psalms ch: 22.md]] (votes: 3)
+- **John 20:17** → **John 17:11** [[John ch: 17.md]] (votes: 9)
+- **John 20:17** → **2 Kings 4:29** [[2 Kings ch: 4.md]] (votes: 2)
+- **John 20:17** → **John 13:1** [[John ch: 13.md]] (votes: 4)
+- **John 20:17** → **John 14:28** [[John ch: 14.md]] (votes: 4)
+- **John 20:17** → **Jeremiah 32:38** [[Jeremiah ch: 32.md]] (votes: 4)
+- **John 20:17** → **John 17:25** [[John ch: 17.md]] (votes: 5)
+- **John 20:17** → **John 16:28** [[John ch: 16.md]] (votes: 19)
+- **John 20:17** → **John 17:5** [[John ch: 17.md]] (votes: 4)
+- **John 20:17** → **Matthew 28:7** [[Matthew ch: 28.md]] (votes: 5)
+- **John 20:17** → **Romans 8:29** [[Romans ch: 8.md]] (votes: 5)
+- **John 20:17** → **John 14:2** [[John ch: 14.md]] (votes: 4)
+- **John 20:17** → **Hebrews 8:10** [[Hebrews ch: 8.md]] (votes: 4)
+- **John 20:17** → **Matthew 25:40** [[Matthew ch: 25.md]] (votes: 3)
+- **John 20:18** → **Matthew 28:10** [[Matthew ch: 28.md]] (votes: 5)
+- **John 20:18** → **Luke 24:10** [[Luke ch: 24.md]] (votes: 7)
+- **John 20:18** → **John 20:1** [[John ch: 20.md]] (votes: 3)
+- **John 20:19** → **Ephesians 2:14** [[Ephesians ch: 2.md]] (votes: 6)
+- **John 20:19** → **Matthew 10:13** [[Matthew ch: 10.md]] (votes: 2)
+- **John 20:19** → **Revelation 1:4** [[Revelation ch: 1.md]] (votes: 3)
+- **John 20:19** → **John 16:33** [[John ch: 16.md]] (votes: 3)
+- **John 20:19** → **1 Corinthians 15:5** [[1 Corinthians ch: 15.md]] (votes: 3)
+- **John 20:19** → **John 20:21** [[John ch: 20.md]] (votes: 9)
+- **John 20:19** → **Hebrews 7:2** [[Hebrews ch: 7.md]] (votes: 2)
+- **John 20:19** → **Philippians 1:2** [[Philippians ch: 1.md]] (votes: 2)
+- **John 20:19** → **Ephesians 6:23** [[Ephesians ch: 6.md]] (votes: 2)
+- **John 20:19** → **John 16:22** [[John ch: 16.md]] (votes: 2)
+- **John 20:19** → **Mark 16:14** [[Mark ch: 16.md]] (votes: 4)
+- **John 20:19** → **Matthew 18:20** [[Matthew ch: 18.md]] (votes: 2)
+- **John 20:19** → **John 14:27** [[John ch: 14.md]] (votes: 12)
+- **John 20:19** → **Romans 15:33** [[Romans ch: 15.md]] (votes: 2)
+- **John 20:19** → **John 7:13** [[John ch: 7.md]] (votes: 4)
+- **John 20:19** → **2 Thessalonians 3:16** [[2 Thessalonians ch: 3.md]] (votes: 5)
+- **John 20:19** → **John 20:26** [[John ch: 20.md]] (votes: 16)
+- **John 20:20** → **1 John 1:1** [[1 John ch: 1.md]] (votes: 3)
+- **John 20:20** → **John 19:34** [[John ch: 19.md]] (votes: 2)
+- **John 20:20** → **John 20:27** [[John ch: 20.md]] (votes: 3)
+- **John 20:20** → **John 16:22** [[John ch: 16.md]] (votes: 5)
+- **John 20:20** → **John 16:20** [[John ch: 16.md]] (votes: 3)
+- **John 20:20** → **Matthew 28:8** [[Matthew ch: 28.md]] (votes: 1)
+- **John 20:21** → **John 3:17** [[John ch: 3.md]] (votes: 10)
+- **John 20:21** → **John 20:19** [[John ch: 20.md]] (votes: 0)
+- **John 20:21** → **Matthew 10:40** [[Matthew ch: 10.md]] (votes: 6)
+- **John 20:21** → **John 14:27** [[John ch: 14.md]] (votes: 3)
+- **John 20:21** → **Hebrews 3:1** [[Hebrews ch: 3.md]] (votes: 2)
+- **John 20:21** → **Matthew 10:16** [[Matthew ch: 10.md]] (votes: 5)
+- **John 20:21** → **John 13:20** [[John ch: 13.md]] (votes: 11)
+- **John 20:21** → **2 Timothy 2:2** [[2 Timothy ch: 2.md]] (votes: 4)
+- **John 20:21** → **Acts 1:8** [[Acts ch: 1.md]] (votes: 9)
+- **John 20:22** → **Acts 10:47** [[Acts ch: 10.md]] (votes: 4)
+- **John 20:22** → **John 16:7** [[John ch: 16.md]] (votes: 3)
+- **John 20:22** → **Acts 8:15** [[Acts ch: 8.md]] (votes: 9)
+- **John 20:22** → **Galatians 3:2** [[Galatians ch: 3.md]] (votes: 4)
+- **John 20:22** → **John 15:26** [[John ch: 15.md]] (votes: 4)
+- **John 20:22** → **Ezekiel 37:9** [[Ezekiel ch: 37.md]] (votes: 8)
+- **John 20:22** → **John 7:39** [[John ch: 7.md]] (votes: 8)
+- **John 20:22** → **Psalms 33:6** [[Psalms ch: 33.md]] (votes: 8)
+- **John 20:22** → **Acts 2:4** [[Acts ch: 2.md]] (votes: 5)
+- **John 20:22** → **John 14:16** [[John ch: 14.md]] (votes: 5)
+- **John 20:22** → **Acts 2:38** [[Acts ch: 2.md]] (votes: 9)
+- **John 20:22** → **Acts 4:8** [[Acts ch: 4.md]] (votes: 5)
+- **John 20:22** → **Job 33:4** [[Job ch: 33.md]] (votes: 21)
+- **John 20:22** → **Acts 19:2** [[Acts ch: 19.md]] (votes: 8)
+- **John 20:22** → **Genesis 2:7** [[Genesis ch: 2.md]] (votes: 13)
+- **John 20:23** → **Acts 10:43** [[Acts ch: 10.md]] (votes: 7)
+- **John 20:23** → **Acts 2:38** [[Acts ch: 2.md]] (votes: 7)
+- **John 20:23** → **Ephesians 2:20** [[Ephesians ch: 2.md]] (votes: 1)
+- **John 20:23** → **1 Corinthians 5:4** [[1 Corinthians ch: 5.md]] (votes: 6)
+- **John 20:23** → **Matthew 16:19** [[Matthew ch: 16.md]] (votes: 12)
+- **John 20:23** → **1 Timothy 1:20** [[1 Timothy ch: 1.md]] (votes: 7)
+- **John 20:23** → **Matthew 18:18** [[Matthew ch: 18.md]] (votes: 16)
+- **John 20:24** → **Matthew 18:20** [[Matthew ch: 18.md]] (votes: 0)
+- **John 20:24** → **John 14:5** [[John ch: 14.md]] (votes: 1)
+- **John 20:24** → **Hebrews 10:25** [[Hebrews ch: 10.md]] (votes: 2)
+- **John 20:24** → **John 11:16** [[John ch: 11.md]] (votes: 4)
+- **John 20:24** → **John 21:2** [[John ch: 21.md]] (votes: 1)
+- **John 20:24** → **Matthew 10:3** [[Matthew ch: 10.md]] (votes: 0)
+- **John 20:25** → **Psalms 78:32** [[Psalms ch: 78.md]] (votes: 4)
+- **John 20:25** → **Job 9:16** [[Job ch: 9.md]] (votes: 3)
+- **John 20:25** → **John 21:7** [[John ch: 21.md]] (votes: 3)
+- **John 20:25** → **Hebrews 3:12** [[Hebrews ch: 3.md]] (votes: 4)
+- **John 20:25** → **Mark 16:11** [[Mark ch: 16.md]] (votes: 6)
+- **John 20:25** → **John 6:30** [[John ch: 6.md]] (votes: 6)
+- **John 20:25** → **Matthew 27:42** [[Matthew ch: 27.md]] (votes: 3)
+- **John 20:25** → **John 1:41** [[John ch: 1.md]] (votes: 3)
+- **John 20:25** → **Luke 24:25** [[Luke ch: 24.md]] (votes: 3)
+- **John 20:26** → **Isaiah 27:5** [[Isaiah ch: 27.md]] (votes: 1)
+- **John 20:26** → **Isaiah 26:12** [[Isaiah ch: 26.md]] (votes: 2)
+- **John 20:26** → **John 20:19** [[John ch: 20.md]] (votes: 6)
+- **John 20:26** → **John 14:27** [[John ch: 14.md]] (votes: 2)
+- **John 20:26** → **John 20:21** [[John ch: 20.md]] (votes: 2)
+- **John 20:26** → **Luke 9:28** [[Luke ch: 9.md]] (votes: 2)
+- **John 20:26** → **Matthew 17:1** [[Matthew ch: 17.md]] (votes: 2)
+- **John 20:26** → **Isaiah 54:10** [[Isaiah ch: 54.md]] (votes: 3)
+- **John 20:27** → **John 20:20** [[John ch: 20.md]] (votes: 4)
+- **John 20:27** → **Matthew 17:17** [[Matthew ch: 17.md]] (votes: 3)
+- **John 20:27** → **Romans 5:20** [[Romans ch: 5.md]] (votes: 3)
+- **John 20:27** → **Luke 9:41** [[Luke ch: 9.md]] (votes: 3)
+- **John 20:27** → **Psalms 78:38** [[Psalms ch: 78.md]] (votes: 4)
+- **John 20:27** → **Mark 9:19** [[Mark ch: 9.md]] (votes: 3)
+- **John 20:27** → **Luke 24:40** [[Luke ch: 24.md]] (votes: 3)
+- **John 20:27** → **John 20:25** [[John ch: 20.md]] (votes: 9)
+- **John 20:28** → **Psalms 45:11** [[Psalms ch: 45.md]] (votes: 5)
+- **John 20:28** → **Malachi 3:1** [[Malachi ch: 3.md]] (votes: 6)
+- **John 20:28** → **John 20:16** [[John ch: 20.md]] (votes: 8)
+- **John 20:28** → **Psalms 45:6** [[Psalms ch: 45.md]] (votes: 6)
+- **John 20:28** → **John 1:1** [[John ch: 1.md]] (votes: 21)
+- **John 20:28** → **Luke 24:52** [[Luke ch: 24.md]] (votes: 10)
+- **John 20:28** → **Isaiah 25:9** [[Isaiah ch: 25.md]] (votes: 11)
+- **John 20:28** → **1 Timothy 3:16** [[1 Timothy ch: 3.md]] (votes: 17)
+- **John 20:28** → **John 20:31** [[John ch: 20.md]] (votes: 6)
+- **John 20:28** → **Isaiah 9:6** [[Isaiah ch: 9.md]] (votes: 20)
+- **John 20:28** → **Isaiah 7:14** [[Isaiah ch: 7.md]] (votes: 17)
+- **John 20:28** → **John 5:23** [[John ch: 5.md]] (votes: 13)
+- **John 20:28** → **Matthew 14:33** [[Matthew ch: 14.md]] (votes: 17)
+- **John 20:29** → **Hebrews 11:1** [[Hebrews ch: 11.md]] (votes: 36)
+- **John 20:29** → **Hebrews 11:39** [[Hebrews ch: 11.md]] (votes: 8)
+- **John 20:29** → **John 4:48** [[John ch: 4.md]] (votes: 16)
+- **John 20:29** → **Hebrews 11:27** [[Hebrews ch: 11.md]] (votes: 25)
+- **John 20:29** → **John 20:8** [[John ch: 20.md]] (votes: 14)
+- **John 20:29** → **1 Peter 1:8** [[1 Peter ch: 1.md]] (votes: 70)
+- **John 20:29** → **Luke 1:45** [[Luke ch: 1.md]] (votes: 19)
+- **John 20:29** → **2 Corinthians 5:7** [[2 Corinthians ch: 5.md]] (votes: 59)
+- **John 20:30** → **John 21:25** [[John ch: 21.md]] (votes: 11)
+- **John 20:30** → **John 2:11** [[John ch: 2.md]] (votes: 4)
+- **John 20:30** → **1 Corinthians 10:11** [[1 Corinthians ch: 10.md]] (votes: 4)
+- **John 20:30** → **1 John 5:13** [[1 John ch: 5.md]] (votes: 5)
+- **John 20:30** → **Romans 15:4** [[Romans ch: 15.md]] (votes: 4)
+- **John 20:31** → **1 Peter 1:9** [[1 Peter ch: 1.md]] (votes: 4)
+- **John 20:31** → **Mark 16:16** [[Mark ch: 16.md]] (votes: 7)
+- **John 20:31** → **Matthew 27:54** [[Matthew ch: 27.md]] (votes: 6)
+- **John 20:31** → **1 John 4:15** [[1 John ch: 4.md]] (votes: 18)
+- **John 20:31** → **John 5:24** [[John ch: 5.md]] (votes: 8)
+- **John 20:31** → **John 10:10** [[John ch: 10.md]] (votes: 9)
+- **John 20:31** → **Matthew 16:16** [[Matthew ch: 16.md]] (votes: 7)
+- **John 20:31** → **John 6:40** [[John ch: 6.md]] (votes: 12)
+- **John 20:31** → **Acts 10:43** [[Acts ch: 10.md]] (votes: 28)
+- **John 20:31** → **Luke 24:47** [[Luke ch: 24.md]] (votes: 6)
+- **John 20:31** → **John 3:18** [[John ch: 3.md]] (votes: 13)
+- **John 20:31** → **John 3:36** [[John ch: 3.md]] (votes: 16)
+- **John 20:31** → **John 20:28** [[John ch: 20.md]] (votes: 10)
+- **John 20:31** → **Acts 8:36** [[Acts ch: 8.md]] (votes: 5)
+- **John 20:31** → **Psalms 2:12** [[Psalms ch: 2.md]] (votes: 5)
+- **John 20:31** → **Revelation 2:18** [[Revelation ch: 2.md]] (votes: 4)
+- **John 20:31** → **Acts 9:20** [[Acts ch: 9.md]] (votes: 5)
+- **John 20:31** → **Matthew 4:3** [[Matthew ch: 4.md]] (votes: 4)
+- **John 20:31** → **1 John 5:20** [[1 John ch: 5.md]] (votes: 17)
+- **John 20:31** → **John 1:49** [[John ch: 1.md]] (votes: 5)
+- **John 20:31** → **John 19:35** [[John ch: 19.md]] (votes: 10)
+- **John 20:31** → **Luke 1:4** [[Luke ch: 1.md]] (votes: 8)
+- **John 20:31** → **Psalms 2:7** [[Psalms ch: 2.md]] (votes: 5)
+- **John 20:31** → **2 John 1:9** [[2 John ch: 1.md]] (votes: 12)
+- **John 20:31** → **1 John 5:1** [[1 John ch: 5.md]] (votes: 21)
+- **John 20:31** → **Acts 3:16** [[Acts ch: 3.md]] (votes: 5)

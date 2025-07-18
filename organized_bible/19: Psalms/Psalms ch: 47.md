@@ -1,0 +1,128 @@
+# Psalms 47
+
+**1** ¶ To the chief Musician, A Psalm for the sons of Korah. O clap your hands, all ye people; shout unto God with the voice of triumph.
+
+**2** For the LORD most high [is] terrible; [he is] a great King over all the earth.
+
+**3** He shall subdue the people under us, and the nations under our feet.
+
+**4** He shall choose our inheritance for us, the excellency of Jacob whom he loved. Selah.
+
+**5** ¶ God is gone up with a shout, the LORD with the sound of a trumpet.
+
+**6** Sing praises to God, sing praises: sing praises unto our King, sing praises.
+
+**7** For God [is] the King of all the earth: sing ye praises with understanding.
+
+**8** God reigneth over the heathen: God sitteth upon the throne of his holiness.
+
+**9** The princes of the people are gathered together, [even] the people of the God of Abraham: for the shields of the earth [belong] unto God: he is greatly exalted.
+
+---
+
+## Cross-References
+
+- **Psalms 47:1** → **Zephaniah 3:14** [[Zephaniah ch: 3.md]] (votes: 4)
+- **Psalms 47:1** → **Psalms 98:4** [[Psalms ch: 98.md]] (votes: 12)
+- **Psalms 47:1** → **Zechariah 9:9** [[Zechariah ch: 9.md]] (votes: 5)
+- **Psalms 47:1** → **Zechariah 4:7** [[Zechariah ch: 4.md]] (votes: 6)
+- **Psalms 47:1** → **Psalms 46:1** [[Psalms ch: 46.md]] (votes: 7)
+- **Psalms 47:1** → **Psalms 106:47** [[Psalms ch: 106.md]] (votes: 11)
+- **Psalms 47:1** → **Psalms 98:8** [[Psalms ch: 98.md]] (votes: 5)
+- **Psalms 47:1** → **2 Chronicles 13:15** [[2 Chronicles ch: 13.md]] (votes: 5)
+- **Psalms 47:1** → **2 Kings 11:12** [[2 Kings ch: 11.md]] (votes: 6)
+- **Psalms 47:1** → **Psalms 47:5** [[Psalms ch: 47.md]] (votes: 6)
+- **Psalms 47:1** → **1 Samuel 10:24** [[1 Samuel ch: 10.md]] (votes: 5)
+- **Psalms 47:1** → **Isaiah 55:12** [[Isaiah ch: 55.md]] (votes: 6)
+- **Psalms 47:1** → **Jeremiah 31:7** [[Jeremiah ch: 31.md]] (votes: 10)
+- **Psalms 47:1** → **2 Samuel 6:15** [[2 Samuel ch: 6.md]] (votes: 6)
+- **Psalms 47:2** → **Malachi 1:14** [[Malachi ch: 1.md]] (votes: 7)
+- **Psalms 47:2** → **Psalms 65:5** [[Psalms ch: 65.md]] (votes: 5)
+- **Psalms 47:2** → **Matthew 28:18** [[Matthew ch: 28.md]] (votes: 3)
+- **Psalms 47:2** → **Deuteronomy 7:21** [[Deuteronomy ch: 7.md]] (votes: 6)
+- **Psalms 47:2** → **Psalms 76:12** [[Psalms ch: 76.md]] (votes: 3)
+- **Psalms 47:2** → **Nehemiah 1:5** [[Nehemiah ch: 1.md]] (votes: 5)
+- **Psalms 47:2** → **Psalms 145:6** [[Psalms ch: 145.md]] (votes: 3)
+- **Psalms 47:2** → **Psalms 95:3** [[Psalms ch: 95.md]] (votes: 7)
+- **Psalms 47:2** → **Psalms 47:7** [[Psalms ch: 47.md]] (votes: 5)
+- **Psalms 47:2** → **Psalms 68:35** [[Psalms ch: 68.md]] (votes: 6)
+- **Psalms 47:2** → **Psalms 99:3** [[Psalms ch: 99.md]] (votes: 7)
+- **Psalms 47:2** → **Deuteronomy 28:58** [[Deuteronomy ch: 28.md]] (votes: 2)
+- **Psalms 47:3** → **Philippians 3:21** [[Philippians ch: 3.md]] (votes: 1)
+- **Psalms 47:3** → **Psalms 110:1** [[Psalms ch: 110.md]] (votes: 3)
+- **Psalms 47:3** → **Psalms 18:47** [[Psalms ch: 18.md]] (votes: 4)
+- **Psalms 47:3** → **Joshua 21:44** [[Joshua ch: 21.md]] (votes: 0)
+- **Psalms 47:3** → **Psalms 81:14** [[Psalms ch: 81.md]] (votes: 3)
+- **Psalms 47:3** → **1 Corinthians 15:25** [[1 Corinthians ch: 15.md]] (votes: 4)
+- **Psalms 47:3** → **Deuteronomy 33:29** [[Deuteronomy ch: 33.md]] (votes: 1)
+- **Psalms 47:4** → **Malachi 1:2** [[Malachi ch: 1.md]] (votes: 2)
+- **Psalms 47:4** → **Hosea 14:4** [[Hosea ch: 14.md]] (votes: 3)
+- **Psalms 47:4** → **Nahum 2:2** [[Nahum ch: 2.md]] (votes: 5)
+- **Psalms 47:4** → **Deuteronomy 11:12** [[Deuteronomy ch: 11.md]] (votes: 2)
+- **Psalms 47:4** → **1 Peter 1:4** [[1 Peter ch: 1.md]] (votes: 7)
+- **Psalms 47:4** → **Amos 8:7** [[Amos ch: 8.md]] (votes: 4)
+- **Psalms 47:4** → **Ephesians 1:18** [[Ephesians ch: 1.md]] (votes: 2)
+- **Psalms 47:4** → **Deuteronomy 33:3** [[Deuteronomy ch: 33.md]] (votes: 1)
+- **Psalms 47:4** → **Ezekiel 20:6** [[Ezekiel ch: 20.md]] (votes: 2)
+- **Psalms 47:4** → **Psalms 16:3** [[Psalms ch: 16.md]] (votes: 2)
+- **Psalms 47:4** → **Matthew 25:34** [[Matthew ch: 25.md]] (votes: 2)
+- **Psalms 47:4** → **Isaiah 60:15** [[Isaiah ch: 60.md]] (votes: 2)
+- **Psalms 47:4** → **Amos 6:8** [[Amos ch: 6.md]] (votes: 5)
+- **Psalms 47:4** → **Jeremiah 3:19** [[Jeremiah ch: 3.md]] (votes: 2)
+- **Psalms 47:5** → **Psalms 150:3** [[Psalms ch: 150.md]] (votes: 4)
+- **Psalms 47:5** → **1 Chronicles 15:28** [[1 Chronicles ch: 15.md]] (votes: 3)
+- **Psalms 47:5** → **1 Chronicles 15:24** [[1 Chronicles ch: 15.md]] (votes: 3)
+- **Psalms 47:5** → **Psalms 68:33** [[Psalms ch: 68.md]] (votes: 6)
+- **Psalms 47:5** → **Psalms 78:65** [[Psalms ch: 78.md]] (votes: 4)
+- **Psalms 47:5** → **1 Corinthians 15:52** [[1 Corinthians ch: 15.md]] (votes: 4)
+- **Psalms 47:5** → **1 Chronicles 16:42** [[1 Chronicles ch: 16.md]] (votes: 3)
+- **Psalms 47:5** → **Psalms 98:6** [[Psalms ch: 98.md]] (votes: 3)
+- **Psalms 47:5** → **Psalms 81:3** [[Psalms ch: 81.md]] (votes: 3)
+- **Psalms 47:5** → **Joshua 6:5** [[Joshua ch: 6.md]] (votes: 4)
+- **Psalms 47:5** → **2 Samuel 6:15** [[2 Samuel ch: 6.md]] (votes: 4)
+- **Psalms 47:5** → **Numbers 23:21** [[Numbers ch: 23.md]] (votes: 4)
+- **Psalms 47:5** → **1 Thessalonians 4:16** [[1 Thessalonians ch: 4.md]] (votes: 4)
+- **Psalms 47:5** → **1 Timothy 3:16** [[1 Timothy ch: 3.md]] (votes: 3)
+- **Psalms 47:5** → **Revelation 11:15** [[Revelation ch: 11.md]] (votes: 3)
+- **Psalms 47:6** → **Psalms 89:18** [[Psalms ch: 89.md]] (votes: 4)
+- **Psalms 47:6** → **Matthew 27:37** [[Matthew ch: 27.md]] (votes: 5)
+- **Psalms 47:6** → **Exodus 15:21** [[Exodus ch: 15.md]] (votes: 0)
+- **Psalms 47:6** → **Isaiah 33:22** [[Isaiah ch: 33.md]] (votes: 6)
+- **Psalms 47:6** → **1 Chronicles 16:9** [[1 Chronicles ch: 16.md]] (votes: 5)
+- **Psalms 47:6** → **Psalms 68:4** [[Psalms ch: 68.md]] (votes: 7)
+- **Psalms 47:6** → **Matthew 25:34** [[Matthew ch: 25.md]] (votes: 8)
+- **Psalms 47:6** → **Psalms 145:1** [[Psalms ch: 145.md]] (votes: 6)
+- **Psalms 47:6** → **1 Chronicles 29:20** [[1 Chronicles ch: 29.md]] (votes: 4)
+- **Psalms 47:6** → **Zechariah 9:9** [[Zechariah ch: 9.md]] (votes: 2)
+- **Psalms 47:7** → **Zechariah 14:9** [[Zechariah ch: 14.md]] (votes: 10)
+- **Psalms 47:7** → **Psalms 47:8** [[Psalms ch: 47.md]] (votes: 4)
+- **Psalms 47:7** → **Revelation 11:15** [[Revelation ch: 11.md]] (votes: 3)
+- **Psalms 47:7** → **Psalms 47:2** [[Psalms ch: 47.md]] (votes: 3)
+- **Psalms 47:7** → **Colossians 3:16** [[Colossians ch: 3.md]] (votes: 5)
+- **Psalms 47:8** → **Psalms 97:1** [[Psalms ch: 97.md]] (votes: 2)
+- **Psalms 47:8** → **Revelation 19:6** [[Revelation ch: 19.md]] (votes: 5)
+- **Psalms 47:8** → **Hebrews 4:16** [[Hebrews ch: 4.md]] (votes: 2)
+- **Psalms 47:8** → **Revelation 20:11** [[Revelation ch: 20.md]] (votes: 2)
+- **Psalms 47:8** → **Psalms 9:4** [[Psalms ch: 9.md]] (votes: 3)
+- **Psalms 47:8** → **1 Chronicles 16:31** [[1 Chronicles ch: 16.md]] (votes: 8)
+- **Psalms 47:8** → **Psalms 99:1** [[Psalms ch: 99.md]] (votes: 3)
+- **Psalms 47:8** → **Psalms 110:6** [[Psalms ch: 110.md]] (votes: 3)
+- **Psalms 47:8** → **Psalms 93:1** [[Psalms ch: 93.md]] (votes: 3)
+- **Psalms 47:8** → **Psalms 48:1** [[Psalms ch: 48.md]] (votes: 2)
+- **Psalms 47:8** → **Psalms 94:20** [[Psalms ch: 94.md]] (votes: 2)
+- **Psalms 47:8** → **Psalms 96:10** [[Psalms ch: 96.md]] (votes: 2)
+- **Psalms 47:8** → **Psalms 89:14** [[Psalms ch: 89.md]] (votes: 3)
+- **Psalms 47:9** → **Psalms 72:11** [[Psalms ch: 72.md]] (votes: 2)
+- **Psalms 47:9** → **Psalms 46:10** [[Psalms ch: 46.md]] (votes: 2)
+- **Psalms 47:9** → **Proverbs 30:5** [[Proverbs ch: 30.md]] (votes: 2)
+- **Psalms 47:9** → **Isaiah 49:7** [[Isaiah ch: 49.md]] (votes: 1)
+- **Psalms 47:9** → **Romans 11:25** [[Romans ch: 11.md]] (votes: 1)
+- **Psalms 47:9** → **Psalms 97:9** [[Psalms ch: 97.md]] (votes: 2)
+- **Psalms 47:9** → **Genesis 49:10** [[Genesis ch: 49.md]] (votes: 8)
+- **Psalms 47:9** → **Psalms 89:18** [[Psalms ch: 89.md]] (votes: 12)
+- **Psalms 47:9** → **Galatians 3:29** [[Galatians ch: 3.md]] (votes: 2)
+- **Psalms 47:9** → **Exodus 3:15** [[Exodus ch: 3.md]] (votes: 1)
+- **Psalms 47:9** → **Isaiah 49:23** [[Isaiah ch: 49.md]] (votes: 1)
+- **Psalms 47:9** → **Exodus 3:6** [[Exodus ch: 3.md]] (votes: 4)
+- **Psalms 47:9** → **Matthew 22:32** [[Matthew ch: 22.md]] (votes: 2)
+- **Psalms 47:9** → **Isaiah 11:10** [[Isaiah ch: 11.md]] (votes: 1)

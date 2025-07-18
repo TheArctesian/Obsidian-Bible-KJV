@@ -1,0 +1,276 @@
+# Isaiah 66
+
+**1** ¶ Thus saith the LORD, The heaven [is] my throne, and the earth [is] my footstool: where [is] the house that ye build unto me? and where [is] the place of my rest?
+
+**2** For all those [things] hath mine hand made, and all those [things] have been, saith the LORD: but to this [man] will I look, [even] to [him that is] poor and of a contrite spirit, and trembleth at my word.
+
+**3** He that killeth an ox [is as if] he slew a man; he that sacrificeth a lamb, [as if] he cut off a dog's neck; he that offereth an oblation, [as if he offered] swine's blood; he that burneth incense, [as if] he blessed an idol. Yea, they have chosen their own ways, and their soul delighteth in their abominations.
+
+**4** I also will choose their delusions, and will bring their fears upon them; because when I called, none did answer; when I spake, they did not hear: but they did evil before mine eyes, and chose [that] in which I delighted not.
+
+**5** ¶ Hear the word of the LORD, ye that tremble at his word; Your brethren that hated you, that cast you out for my name's sake, said, Let the LORD be glorified: but he shall appear to your joy, and they shall be ashamed.
+
+**6** A voice of noise from the city, a voice from the temple, a voice of the LORD that rendereth recompence to his enemies.
+
+**7** Before she travailed, she brought forth; before her pain came, she was delivered of a man child.
+
+**8** Who hath heard such a thing? who hath seen such things? Shall the earth be made to bring forth in one day? [or] shall a nation be born at once? for as soon as Zion travailed, she brought forth her children.
+
+**9** Shall I bring to the birth, and not cause to bring forth? saith the LORD: shall I cause to bring forth, and shut [the womb]? saith thy God.
+
+**10** Rejoice ye with Jerusalem, and be glad with her, all ye that love her: rejoice for joy with her, all ye that mourn for her:
+
+**11** That ye may suck, and be satisfied with the breasts of her consolations; that ye may milk out, and be delighted with the abundance of her glory.
+
+**12** For thus saith the LORD, Behold, I will extend peace to her like a river, and the glory of the Gentiles like a flowing stream: then shall ye suck, ye shall be borne upon [her] sides, and be dandled upon [her] knees.
+
+**13** As one whom his mother comforteth, so will I comfort you; and ye shall be comforted in Jerusalem.
+
+**14** And when ye see [this], your heart shall rejoice, and your bones shall flourish like an herb: and the hand of the LORD shall be known toward his servants, and [his] indignation toward his enemies.
+
+**15** ¶ For, behold, the LORD will come with fire, and with his chariots like a whirlwind, to render his anger with fury, and his rebuke with flames of fire.
+
+**16** For by fire and by his sword will the LORD plead with all flesh: and the slain of the LORD shall be many.
+
+**17** They that sanctify themselves, and purify themselves in the gardens behind one [tree] in the midst, eating swine's flesh, and the abomination, and the mouse, shall be consumed together, saith the LORD.
+
+**18** For I [know] their works and their thoughts: it shall come, that I will gather all nations and tongues; and they shall come, and see my glory.
+
+**19** And I will set a sign among them, and I will send those that escape of them unto the nations, [to] Tarshish, Pul, and Lud, that draw the bow, [to] Tubal, and Javan, [to] the isles afar off, that have not heard my fame, neither have seen my glory; and they shall declare my glory among the Gentiles.
+
+**20** And they shall bring all your brethren [for] an offering unto the LORD out of all nations upon horses, and in chariots, and in litters, and upon mules, and upon swift beasts, to my holy mountain Jerusalem, saith the LORD, as the children of Israel bring an offering in a clean vessel into the house of the LORD.
+
+**21** And I will also take of them for priests [and] for Levites, saith the LORD.
+
+**22** For as the new heavens and the new earth, which I will make, shall remain before me, saith the LORD, so shall your seed and your name remain.
+
+**23** And it shall come to pass, [that] from one new moon to another, and from one sabbath to another, shall all flesh come to worship before me, saith the LORD.
+
+**24** And they shall go forth, and look upon the carcases of the men that have transgressed against me: for their worm shall not die, neither shall their fire be quenched; and they shall be an abhorring unto all flesh.
+
+---
+
+## Cross-References
+
+- **Isaiah 66:1** → **Malachi 1:11** [[Malachi ch: 1.md]] (votes: 11)
+- **Isaiah 66:1** → **Psalms 99:9** [[Psalms ch: 99.md]] (votes: 12)
+- **Isaiah 66:1** → **Matthew 24:2** [[Matthew ch: 24.md]] (votes: 12)
+- **Isaiah 66:1** → **2 Chronicles 6:18** [[2 Chronicles ch: 6.md]] (votes: 15)
+- **Isaiah 66:1** → **Acts 17:24** [[Acts ch: 17.md]] (votes: 38)
+- **Isaiah 66:1** → **Psalms 11:4** [[Psalms ch: 11.md]] (votes: 15)
+- **Isaiah 66:1** → **1 Kings 8:27** [[1 Kings ch: 8.md]] (votes: 27)
+- **Isaiah 66:1** → **1 Chronicles 28:2** [[1 Chronicles ch: 28.md]] (votes: 15)
+- **Isaiah 66:1** → **Psalms 132:7** [[Psalms ch: 132.md]] (votes: 22)
+- **Isaiah 66:2** → **Proverbs 28:14** [[Proverbs ch: 28.md]] (votes: 21)
+- **Isaiah 66:2** → **Isaiah 66:5** [[Isaiah ch: 66.md]] (votes: 17)
+- **Isaiah 66:2** → **Habakkuk 3:16** [[Habakkuk ch: 3.md]] (votes: 13)
+- **Isaiah 66:2** → **Isaiah 61:1** [[Isaiah ch: 61.md]] (votes: 17)
+- **Isaiah 66:2** → **Psalms 51:17** [[Psalms ch: 51.md]] (votes: 37)
+- **Isaiah 66:2** → **Isaiah 57:15** [[Isaiah ch: 57.md]] (votes: 44)
+- **Isaiah 66:2** → **Psalms 119:161** [[Psalms ch: 119.md]] (votes: 12)
+- **Isaiah 66:2** → **Psalms 119:120** [[Psalms ch: 119.md]] (votes: 19)
+- **Isaiah 66:2** → **Psalms 138:6** [[Psalms ch: 138.md]] (votes: 19)
+- **Isaiah 66:2** → **Ezra 10:3** [[Ezra ch: 10.md]] (votes: 15)
+- **Isaiah 66:2** → **Ezra 9:4** [[Ezra ch: 9.md]] (votes: 12)
+- **Isaiah 66:2** → **Philippians 2:12** [[Philippians ch: 2.md]] (votes: 22)
+- **Isaiah 66:2** → **Isaiah 40:26** [[Isaiah ch: 40.md]] (votes: 6)
+- **Isaiah 66:2** → **Acts 9:6** [[Acts ch: 9.md]] (votes: 3)
+- **Isaiah 66:2** → **Psalms 34:18** [[Psalms ch: 34.md]] (votes: 41)
+- **Isaiah 66:2** → **Colossians 1:17** [[Colossians ch: 1.md]] (votes: 5)
+- **Isaiah 66:3** → **Leviticus 2:2** [[Leviticus ch: 2.md]] (votes: 5)
+- **Isaiah 66:3** → **Isaiah 57:17** [[Isaiah ch: 57.md]] (votes: 2)
+- **Isaiah 66:3** → **Deuteronomy 23:18** [[Deuteronomy ch: 23.md]] (votes: 4)
+- **Isaiah 66:3** → **Proverbs 21:27** [[Proverbs ch: 21.md]] (votes: 4)
+- **Isaiah 66:3** → **Judges 10:14** [[Judges ch: 10.md]] (votes: 3)
+- **Isaiah 66:3** → **Isaiah 66:17** [[Isaiah ch: 66.md]] (votes: 5)
+- **Isaiah 66:3** → **Proverbs 15:8** [[Proverbs ch: 15.md]] (votes: 7)
+- **Isaiah 66:3** → **Deuteronomy 14:8** [[Deuteronomy ch: 14.md]] (votes: 4)
+- **Isaiah 66:3** → **Judges 5:8** [[Judges ch: 5.md]] (votes: 2)
+- **Isaiah 66:3** → **Isaiah 65:12** [[Isaiah ch: 65.md]] (votes: 5)
+- **Isaiah 66:4** → **Jeremiah 7:13** [[Jeremiah ch: 7.md]] (votes: 4)
+- **Isaiah 66:4** → **Isaiah 50:2** [[Isaiah ch: 50.md]] (votes: 2)
+- **Isaiah 66:4** → **2 Kings 21:6** [[2 Kings ch: 21.md]] (votes: 4)
+- **Isaiah 66:4** → **Proverbs 10:24** [[Proverbs ch: 10.md]] (votes: 4)
+- **Isaiah 66:4** → **Psalms 81:12** [[Psalms ch: 81.md]] (votes: 3)
+- **Isaiah 66:4** → **2 Kings 21:2** [[2 Kings ch: 21.md]] (votes: 4)
+- **Isaiah 66:4** → **Proverbs 1:24** [[Proverbs ch: 1.md]] (votes: 4)
+- **Isaiah 66:4** → **Isaiah 65:12** [[Isaiah ch: 65.md]] (votes: 8)
+- **Isaiah 66:4** → **Matthew 24:24** [[Matthew ch: 24.md]] (votes: 2)
+- **Isaiah 66:4** → **Isaiah 65:3** [[Isaiah ch: 65.md]] (votes: 2)
+- **Isaiah 66:5** → **Luke 13:17** [[Luke ch: 13.md]] (votes: 4)
+- **Isaiah 66:5** → **Hebrews 9:28** [[Hebrews ch: 9.md]] (votes: 3)
+- **Isaiah 66:5** → **Isaiah 66:2** [[Isaiah ch: 66.md]] (votes: 7)
+- **Isaiah 66:5** → **Isaiah 60:15** [[Isaiah ch: 60.md]] (votes: 2)
+- **Isaiah 66:5** → **Psalms 38:20** [[Psalms ch: 38.md]] (votes: 6)
+- **Isaiah 66:5** → **John 16:2** [[John ch: 16.md]] (votes: 3)
+- **Isaiah 66:5** → **Matthew 10:22** [[Matthew ch: 10.md]] (votes: 6)
+- **Isaiah 66:5** → **John 9:34** [[John ch: 9.md]] (votes: 5)
+- **Isaiah 66:5** → **Jeremiah 36:16** [[Jeremiah ch: 36.md]] (votes: 5)
+- **Isaiah 66:5** → **Isaiah 5:19** [[Isaiah ch: 5.md]] (votes: 5)
+- **Isaiah 66:5** → **Proverbs 13:13** [[Proverbs ch: 13.md]] (votes: 4)
+- **Isaiah 66:5** → **1 John 3:13** [[1 John ch: 3.md]] (votes: 4)
+- **Isaiah 66:5** → **Song of Solomon 1:6** [[Song of Solomon ch: 1.md]] (votes: 5)
+- **Isaiah 66:5** → **Titus 2:13** [[Titus ch: 2.md]] (votes: 3)
+- **Isaiah 66:6** → **Isaiah 59:18** [[Isaiah ch: 59.md]] (votes: 1)
+- **Isaiah 66:6** → **Isaiah 34:8** [[Isaiah ch: 34.md]] (votes: 2)
+- **Isaiah 66:6** → **Amos 1:2** [[Amos ch: 1.md]] (votes: 2)
+- **Isaiah 66:7** → **Isaiah 54:1** [[Isaiah ch: 54.md]] (votes: 5)
+- **Isaiah 66:7** → **Galatians 4:26** [[Galatians ch: 4.md]] (votes: 4)
+- **Isaiah 66:8** → **Acts 21:20** [[Acts ch: 21.md]] (votes: 0)
+- **Isaiah 66:8** → **Acts 4:4** [[Acts ch: 4.md]] (votes: -2)
+- **Isaiah 66:8** → **1 Corinthians 2:9** [[1 Corinthians ch: 2.md]] (votes: 1)
+- **Isaiah 66:8** → **Acts 2:41** [[Acts ch: 2.md]] (votes: 0)
+- **Isaiah 66:8** → **Isaiah 64:4** [[Isaiah ch: 64.md]] (votes: 5)
+- **Isaiah 66:9** → **Genesis 18:14** [[Genesis ch: 18.md]] (votes: 11)
+- **Isaiah 66:9** → **Isaiah 37:3** [[Isaiah ch: 37.md]] (votes: 13)
+- **Isaiah 66:10** → **Psalms 122:6** [[Psalms ch: 122.md]] (votes: 2)
+- **Isaiah 66:10** → **Ezekiel 9:4** [[Ezekiel ch: 9.md]] (votes: 3)
+- **Isaiah 66:10** → **Psalms 137:6** [[Psalms ch: 137.md]] (votes: 5)
+- **Isaiah 66:10** → **Deuteronomy 32:43** [[Deuteronomy ch: 32.md]] (votes: 5)
+- **Isaiah 66:10** → **Isaiah 65:18** [[Isaiah ch: 65.md]] (votes: 4)
+- **Isaiah 66:10** → **Psalms 26:8** [[Psalms ch: 26.md]] (votes: 5)
+- **Isaiah 66:10** → **Isaiah 44:23** [[Isaiah ch: 44.md]] (votes: 2)
+- **Isaiah 66:11** → **Isaiah 60:5** [[Isaiah ch: 60.md]] (votes: 3)
+- **Isaiah 66:11** → **Isaiah 60:16** [[Isaiah ch: 60.md]] (votes: 6)
+- **Isaiah 66:11** → **Joel 3:18** [[Joel ch: 3.md]] (votes: 4)
+- **Isaiah 66:11** → **1 Peter 2:2** [[1 Peter ch: 2.md]] (votes: 2)
+- **Isaiah 66:11** → **Psalms 36:8** [[Psalms ch: 36.md]] (votes: 3)
+- **Isaiah 66:12** → **Isaiah 66:11** [[Isaiah ch: 66.md]] (votes: 10)
+- **Isaiah 66:12** → **Isaiah 61:6** [[Isaiah ch: 61.md]] (votes: 10)
+- **Isaiah 66:12** → **Isaiah 60:16** [[Isaiah ch: 60.md]] (votes: 12)
+- **Isaiah 66:12** → **Isaiah 54:3** [[Isaiah ch: 54.md]] (votes: 10)
+- **Isaiah 66:12** → **Isaiah 48:18** [[Isaiah ch: 48.md]] (votes: 12)
+- **Isaiah 66:12** → **Isaiah 45:14** [[Isaiah ch: 45.md]] (votes: 11)
+- **Isaiah 66:12** → **Isaiah 9:7** [[Isaiah ch: 9.md]] (votes: 8)
+- **Isaiah 66:13** → **Isaiah 51:3** [[Isaiah ch: 51.md]] (votes: 13)
+- **Isaiah 66:13** → **Isaiah 40:1** [[Isaiah ch: 40.md]] (votes: 11)
+- **Isaiah 66:13** → **Psalms 137:6** [[Psalms ch: 137.md]] (votes: 6)
+- **Isaiah 66:13** → **2 Corinthians 1:4** [[2 Corinthians ch: 1.md]] (votes: 19)
+- **Isaiah 66:13** → **Isaiah 66:10** [[Isaiah ch: 66.md]] (votes: 7)
+- **Isaiah 66:13** → **1 Thessalonians 2:7** [[1 Thessalonians ch: 2.md]] (votes: 12)
+- **Isaiah 66:14** → **Ezra 8:18** [[Ezra ch: 8.md]] (votes: 3)
+- **Isaiah 66:14** → **Isaiah 26:19** [[Isaiah ch: 26.md]] (votes: 3)
+- **Isaiah 66:14** → **Isaiah 66:5** [[Isaiah ch: 66.md]] (votes: 3)
+- **Isaiah 66:14** → **Proverbs 3:8** [[Proverbs ch: 3.md]] (votes: 4)
+- **Isaiah 66:14** → **John 16:22** [[John ch: 16.md]] (votes: 3)
+- **Isaiah 66:14** → **Proverbs 17:22** [[Proverbs ch: 17.md]] (votes: 4)
+- **Isaiah 66:14** → **Malachi 3:18** [[Malachi ch: 3.md]] (votes: 3)
+- **Isaiah 66:14** → **Hebrews 10:27** [[Hebrews ch: 10.md]] (votes: 3)
+- **Isaiah 66:14** → **Ezra 8:22** [[Ezra ch: 8.md]] (votes: 5)
+- **Isaiah 66:14** → **Ezra 8:31** [[Ezra ch: 8.md]] (votes: 5)
+- **Isaiah 66:14** → **Isaiah 58:11** [[Isaiah ch: 58.md]] (votes: 3)
+- **Isaiah 66:14** → **Ezra 7:9** [[Ezra ch: 7.md]] (votes: 5)
+- **Isaiah 66:14** → **Isaiah 10:5** [[Isaiah ch: 10.md]] (votes: 3)
+- **Isaiah 66:14** → **Zechariah 10:7** [[Zechariah ch: 10.md]] (votes: 6)
+- **Isaiah 66:15** → **Matthew 22:7** [[Matthew ch: 22.md]] (votes: 6)
+- **Isaiah 66:15** → **Psalms 50:3** [[Psalms ch: 50.md]] (votes: 4)
+- **Isaiah 66:15** → **Daniel 11:40** [[Daniel ch: 11.md]] (votes: 3)
+- **Isaiah 66:15** → **Psalms 21:9** [[Psalms ch: 21.md]] (votes: 5)
+- **Isaiah 66:15** → **Psalms 68:17** [[Psalms ch: 68.md]] (votes: 5)
+- **Isaiah 66:15** → **Psalms 97:3** [[Psalms ch: 97.md]] (votes: 5)
+- **Isaiah 66:15** → **Isaiah 30:33** [[Isaiah ch: 30.md]] (votes: 8)
+- **Isaiah 66:15** → **Jeremiah 4:3** [[Jeremiah ch: 4.md]] (votes: 4)
+- **Isaiah 66:15** → **Psalms 11:6** [[Psalms ch: 11.md]] (votes: 5)
+- **Isaiah 66:15** → **Amos 7:4** [[Amos ch: 7.md]] (votes: 3)
+- **Isaiah 66:16** → **Isaiah 27:1** [[Isaiah ch: 27.md]] (votes: 3)
+- **Isaiah 66:16** → **Isaiah 30:30** [[Isaiah ch: 30.md]] (votes: 5)
+- **Isaiah 66:18** → **John 5:42** [[John ch: 5.md]] (votes: 3)
+- **Isaiah 66:18** → **Matthew 12:25** [[Matthew ch: 12.md]] (votes: 2)
+- **Isaiah 66:18** → **Psalms 72:11** [[Psalms ch: 72.md]] (votes: 2)
+- **Isaiah 66:18** → **Job 42:2** [[Job ch: 42.md]] (votes: 2)
+- **Isaiah 66:18** → **Deuteronomy 31:21** [[Deuteronomy ch: 31.md]] (votes: 2)
+- **Isaiah 66:18** → **Psalms 67:2** [[Psalms ch: 67.md]] (votes: 2)
+- **Isaiah 66:18** → **Psalms 72:17** [[Psalms ch: 72.md]] (votes: 2)
+- **Isaiah 66:18** → **Romans 16:26** [[Romans ch: 16.md]] (votes: 2)
+- **Isaiah 66:18** → **Psalms 86:9** [[Psalms ch: 86.md]] (votes: 6)
+- **Isaiah 66:18** → **Revelation 11:15** [[Revelation ch: 11.md]] (votes: 4)
+- **Isaiah 66:18** → **Hebrews 4:12** [[Hebrews ch: 4.md]] (votes: 2)
+- **Isaiah 66:18** → **Isaiah 66:10** [[Isaiah ch: 66.md]] (votes: 2)
+- **Isaiah 66:18** → **Ezekiel 38:10** [[Ezekiel ch: 38.md]] (votes: 2)
+- **Isaiah 66:18** → **Isaiah 37:28** [[Isaiah ch: 37.md]] (votes: 2)
+- **Isaiah 66:18** → **Revelation 2:2** [[Revelation ch: 2.md]] (votes: 1)
+- **Isaiah 66:18** → **1 Corinthians 3:20** [[1 Corinthians ch: 3.md]] (votes: 2)
+- **Isaiah 66:18** → **Ezekiel 39:21** [[Ezekiel ch: 39.md]] (votes: 2)
+- **Isaiah 66:18** → **John 17:24** [[John ch: 17.md]] (votes: 2)
+- **Isaiah 66:18** → **Psalms 82:8** [[Psalms ch: 82.md]] (votes: 2)
+- **Isaiah 66:18** → **Amos 5:12** [[Amos ch: 5.md]] (votes: 2)
+- **Isaiah 66:18** → **Isaiah 2:2** [[Isaiah ch: 2.md]] (votes: 3)
+- **Isaiah 66:18** → **Matthew 9:4** [[Matthew ch: 9.md]] (votes: 2)
+- **Isaiah 66:18** → **Revelation 2:9** [[Revelation ch: 2.md]] (votes: 1)
+- **Isaiah 66:18** → **Joel 3:2** [[Joel ch: 3.md]] (votes: 2)
+- **Isaiah 66:18** → **Luke 5:22** [[Luke ch: 5.md]] (votes: 2)
+- **Isaiah 66:18** → **Revelation 2:13** [[Revelation ch: 2.md]] (votes: 1)
+- **Isaiah 66:19** → **Isaiah 18:3** [[Isaiah ch: 18.md]] (votes: 3)
+- **Isaiah 66:19** → **Ezekiel 30:5** [[Ezekiel ch: 30.md]] (votes: 3)
+- **Isaiah 66:19** → **Genesis 10:13** [[Genesis ch: 10.md]] (votes: 2)
+- **Isaiah 66:19** → **Isaiah 65:1** [[Isaiah ch: 65.md]] (votes: 4)
+- **Isaiah 66:19** → **Ezekiel 27:10** [[Ezekiel ch: 27.md]] (votes: 6)
+- **Isaiah 66:19** → **Isaiah 2:16** [[Isaiah ch: 2.md]] (votes: 2)
+- **Isaiah 66:19** → **Ezekiel 27:13** [[Ezekiel ch: 27.md]] (votes: 3)
+- **Isaiah 66:19** → **Isaiah 43:6** [[Isaiah ch: 43.md]] (votes: 2)
+- **Isaiah 66:19** → **Genesis 10:4** [[Genesis ch: 10.md]] (votes: 2)
+- **Isaiah 66:19** → **Romans 15:21** [[Romans ch: 15.md]] (votes: 9)
+- **Isaiah 66:19** → **Isaiah 51:5** [[Isaiah ch: 51.md]] (votes: 2)
+- **Isaiah 66:19** → **Ezekiel 39:1** [[Ezekiel ch: 39.md]] (votes: 2)
+- **Isaiah 66:19** → **Isaiah 42:4** [[Isaiah ch: 42.md]] (votes: 3)
+- **Isaiah 66:19** → **Malachi 1:11** [[Malachi ch: 1.md]] (votes: 2)
+- **Isaiah 66:19** → **Matthew 28:19** [[Matthew ch: 28.md]] (votes: 3)
+- **Isaiah 66:19** → **Genesis 10:2** [[Genesis ch: 10.md]] (votes: 3)
+- **Isaiah 66:19** → **Isaiah 60:9** [[Isaiah ch: 60.md]] (votes: 5)
+- **Isaiah 66:19** → **Isaiah 49:12** [[Isaiah ch: 49.md]] (votes: 2)
+- **Isaiah 66:19** → **Luke 2:34** [[Luke ch: 2.md]] (votes: 3)
+- **Isaiah 66:19** → **1 Chronicles 1:11** [[1 Chronicles ch: 1.md]] (votes: 2)
+- **Isaiah 66:19** → **Mark 16:15** [[Mark ch: 16.md]] (votes: 3)
+- **Isaiah 66:19** → **Zephaniah 2:11** [[Zephaniah ch: 2.md]] (votes: 2)
+- **Isaiah 66:19** → **Isaiah 18:7** [[Isaiah ch: 18.md]] (votes: 2)
+- **Isaiah 66:19** → **Isaiah 62:10** [[Isaiah ch: 62.md]] (votes: 4)
+- **Isaiah 66:19** → **Isaiah 52:15** [[Isaiah ch: 52.md]] (votes: 17)
+- **Isaiah 66:19** → **Isaiah 49:22** [[Isaiah ch: 49.md]] (votes: 2)
+- **Isaiah 66:19** → **Isaiah 29:24** [[Isaiah ch: 29.md]] (votes: 3)
+- **Isaiah 66:19** → **Psalms 72:10** [[Psalms ch: 72.md]] (votes: 2)
+- **Isaiah 66:19** → **1 Chronicles 1:7** [[1 Chronicles ch: 1.md]] (votes: 2)
+- **Isaiah 66:19** → **Isaiah 55:5** [[Isaiah ch: 55.md]] (votes: 6)
+- **Isaiah 66:19** → **1 Chronicles 16:24** [[1 Chronicles ch: 16.md]] (votes: 4)
+- **Isaiah 66:19** → **Ephesians 3:8** [[Ephesians ch: 3.md]] (votes: 3)
+- **Isaiah 66:19** → **Isaiah 49:1** [[Isaiah ch: 49.md]] (votes: 2)
+- **Isaiah 66:20** → **Isaiah 43:6** [[Isaiah ch: 43.md]] (votes: 3)
+- **Isaiah 66:20** → **Romans 15:16** [[Romans ch: 15.md]] (votes: 3)
+- **Isaiah 66:20** → **Isaiah 52:11** [[Isaiah ch: 52.md]] (votes: 2)
+- **Isaiah 66:20** → **1 Peter 2:5** [[1 Peter ch: 2.md]] (votes: 2)
+- **Isaiah 66:20** → **Isaiah 65:25** [[Isaiah ch: 65.md]] (votes: 3)
+- **Isaiah 66:20** → **Isaiah 65:11** [[Isaiah ch: 65.md]] (votes: 3)
+- **Isaiah 66:20** → **Isaiah 11:9** [[Isaiah ch: 11.md]] (votes: 3)
+- **Isaiah 66:20** → **Isaiah 54:3** [[Isaiah ch: 54.md]] (votes: 2)
+- **Isaiah 66:20** → **Isaiah 56:7** [[Isaiah ch: 56.md]] (votes: 3)
+- **Isaiah 66:20** → **Philippians 2:17** [[Philippians ch: 2.md]] (votes: 2)
+- **Isaiah 66:21** → **Revelation 20:6** [[Revelation ch: 20.md]] (votes: 3)
+- **Isaiah 66:21** → **Isaiah 61:6** [[Isaiah ch: 61.md]] (votes: 5)
+- **Isaiah 66:21** → **Revelation 1:6** [[Revelation ch: 1.md]] (votes: 5)
+- **Isaiah 66:21** → **1 Peter 2:5** [[1 Peter ch: 2.md]] (votes: 5)
+- **Isaiah 66:21** → **Revelation 5:10** [[Revelation ch: 5.md]] (votes: 3)
+- **Isaiah 66:21** → **Exodus 19:6** [[Exodus ch: 19.md]] (votes: 6)
+- **Isaiah 66:21** → **1 Peter 2:9** [[1 Peter ch: 2.md]] (votes: 7)
+- **Isaiah 66:22** → **2 Peter 3:13** [[2 Peter ch: 3.md]] (votes: 7)
+- **Isaiah 66:22** → **Revelation 21:1** [[Revelation ch: 21.md]] (votes: 7)
+- **Isaiah 66:22** → **Isaiah 65:17** [[Isaiah ch: 65.md]] (votes: 8)
+- **Isaiah 66:22** → **Matthew 28:20** [[Matthew ch: 28.md]] (votes: 3)
+- **Isaiah 66:23** → **Zechariah 14:14** [[Zechariah ch: 14.md]] (votes: 5)
+- **Isaiah 66:23** → **Ezekiel 46:1** [[Ezekiel ch: 46.md]] (votes: 9)
+- **Isaiah 66:23** → **Psalms 65:2** [[Psalms ch: 65.md]] (votes: 5)
+- **Isaiah 66:23** → **Revelation 15:4** [[Revelation ch: 15.md]] (votes: 5)
+- **Isaiah 66:23** → **Ezekiel 46:6** [[Ezekiel ch: 46.md]] (votes: 6)
+- **Isaiah 66:23** → **2 Kings 4:23** [[2 Kings ch: 4.md]] (votes: 4)
+- **Isaiah 66:23** → **Malachi 1:11** [[Malachi ch: 1.md]] (votes: 5)
+- **Isaiah 66:23** → **Isaiah 19:21** [[Isaiah ch: 19.md]] (votes: 3)
+- **Isaiah 66:23** → **Zechariah 14:16** [[Zechariah ch: 14.md]] (votes: 6)
+- **Isaiah 66:23** → **Psalms 86:9** [[Psalms ch: 86.md]] (votes: 7)
+- **Isaiah 66:23** → **John 4:23** [[John ch: 4.md]] (votes: 5)
+- **Isaiah 66:24** → **Zechariah 14:12** [[Zechariah ch: 14.md]] (votes: 5)
+- **Isaiah 66:24** → **Isaiah 1:31** [[Isaiah ch: 1.md]] (votes: 4)
+- **Isaiah 66:24** → **Daniel 12:2** [[Daniel ch: 12.md]] (votes: 9)
+- **Isaiah 66:24** → **Matthew 3:12** [[Matthew ch: 3.md]] (votes: 5)
+- **Isaiah 66:24** → **Isaiah 66:16** [[Isaiah ch: 66.md]] (votes: 5)
+- **Isaiah 66:24** → **Isaiah 65:15** [[Isaiah ch: 65.md]] (votes: 4)
+- **Isaiah 66:24** → **Isaiah 14:11** [[Isaiah ch: 14.md]] (votes: 11)
+- **Isaiah 66:24** → **Isaiah 34:10** [[Isaiah ch: 34.md]] (votes: 5)
+- **Isaiah 66:24** → **Revelation 21:8** [[Revelation ch: 21.md]] (votes: 9)

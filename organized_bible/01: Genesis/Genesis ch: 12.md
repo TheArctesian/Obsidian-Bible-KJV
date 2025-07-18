@@ -1,0 +1,236 @@
+# Genesis 12
+
+**1** ¶ Now the LORD had said unto Abram, Get thee out of thy country, and from thy kindred, and from thy father's house, unto a land that I will shew thee:
+
+**2** And I will make of thee a great nation, and I will bless thee, and make thy name great; and thou shalt be a blessing:
+
+**3** And I will bless them that bless thee, and curse him that curseth thee: and in thee shall all families of the earth be blessed.
+
+**4** ¶ So Abram departed, as the LORD had spoken unto him; and Lot went with him: and Abram [was] seventy and five years old when he departed out of Haran.
+
+**5** And Abram took Sarai his wife, and Lot his brother's son, and all their substance that they had gathered, and the souls that they had gotten in Haran; and they went forth to go into the land of Canaan; and into the land of Canaan they came.
+
+**6** ¶ And Abram passed through the land unto the place of Sichem, unto the plain of Moreh. And the Canaanite [was] then in the land.
+
+**7** And the LORD appeared unto Abram, and said, Unto thy seed will I give this land: and there builded he an altar unto the LORD, who appeared unto him.
+
+**8** And he removed from thence unto a mountain on the east of Bethel, and pitched his tent, [having] Bethel on the west, and Hai on the east: and there he builded an altar unto the LORD, and called upon the name of the LORD.
+
+**9** And Abram journeyed, going on still toward the south.
+
+**10** ¶ And there was a famine in the land: and Abram went down into Egypt to sojourn there; for the famine [was] grievous in the land.
+
+**11** And it came to pass, when he was come near to enter into Egypt, that he said unto Sarai his wife, Behold now, I know that thou [art] a fair woman to look upon:
+
+**12** Therefore it shall come to pass, when the Egyptians shall see thee, that they shall say, This [is] his wife: and they will kill me, but they will save thee alive.
+
+**13** Say, I pray thee, thou [art] my sister: that it may be well with me for thy sake; and my soul shall live because of thee.
+
+**14** ¶ And it came to pass, that, when Abram was come into Egypt, the Egyptians beheld the woman that she [was] very fair.
+
+**15** The princes also of Pharaoh saw her, and commended her before Pharaoh: and the woman was taken into Pharaoh's house.
+
+**16** And he entreated Abram well for her sake: and he had sheep, and oxen, and he asses, and menservants, and maidservants, and she asses, and camels.
+
+**17** And the LORD plagued Pharaoh and his house with great plagues because of Sarai Abram's wife.
+
+**18** And Pharaoh called Abram, and said, What [is] this [that] thou hast done unto me? why didst thou not tell me that she [was] thy wife?
+
+**19** Why saidst thou, She [is] my sister? so I might have taken her to me to wife: now therefore behold thy wife, take [her], and go thy way.
+
+**20** And Pharaoh commanded [his] men concerning him: and they sent him away, and his wife, and all that he had.
+
+---
+
+## Cross-References
+
+- **Genesis 12:1** → **Isaiah 51:2** [[Isaiah ch: 51.md]] (votes: 23)
+- **Genesis 12:1** → **Nehemiah 9:7** [[Nehemiah ch: 9.md]] (votes: 33)
+- **Genesis 12:1** → **Isaiah 41:9** [[Isaiah ch: 41.md]] (votes: 4)
+- **Genesis 12:1** → **Hebrews 11:8** [[Hebrews ch: 11.md]] (votes: 57)
+- **Genesis 12:1** → **Ezekiel 33:24** [[Ezekiel ch: 33.md]] (votes: 11)
+- **Genesis 12:1** → **Genesis 15:7** [[Genesis ch: 15.md]] (votes: 14)
+- **Genesis 12:1** → **2 Corinthians 6:17** [[2 Corinthians ch: 6.md]] (votes: 8)
+- **Genesis 12:1** → **Revelation 18:4** [[Revelation ch: 18.md]] (votes: 1)
+- **Genesis 12:2** → **Micah 7:20** [[Micah ch: 7.md]] (votes: 6)
+- **Genesis 12:2** → **Galatians 3:7** [[Galatians ch: 3.md]] (votes: 16)
+- **Genesis 12:2** → **Genesis 27:29** [[Genesis ch: 27.md]] (votes: 11)
+- **Genesis 12:2** → **Genesis 28:14** [[Genesis ch: 28.md]] (votes: 10)
+- **Genesis 12:2** → **Genesis 46:3** [[Genesis ch: 46.md]] (votes: 20)
+- **Genesis 12:2** → **Genesis 35:11** [[Genesis ch: 35.md]] (votes: 22)
+- **Genesis 12:2** → **Genesis 24:35** [[Genesis ch: 24.md]] (votes: 16)
+- **Genesis 12:2** → **Genesis 19:29** [[Genesis ch: 19.md]] (votes: 11)
+- **Genesis 12:2** → **Exodus 1:7** [[Exodus ch: 1.md]] (votes: 16)
+- **Genesis 12:2** → **Romans 4:11** [[Romans ch: 4.md]] (votes: 9)
+- **Genesis 12:2** → **Genesis 13:16** [[Genesis ch: 13.md]] (votes: 16)
+- **Genesis 12:2** → **Genesis 18:18** [[Genesis ch: 18.md]] (votes: 30)
+- **Genesis 12:2** → **Numbers 14:12** [[Numbers ch: 14.md]] (votes: 9)
+- **Genesis 12:2** → **Galatians 3:14** [[Galatians ch: 3.md]] (votes: 30)
+- **Genesis 12:2** → **Genesis 26:4** [[Genesis ch: 26.md]] (votes: 19)
+- **Genesis 12:2** → **Exodus 32:10** [[Exodus ch: 32.md]] (votes: 11)
+- **Genesis 12:2** → **1 Kings 1:47** [[1 Kings ch: 1.md]] (votes: 7)
+- **Genesis 12:2** → **Genesis 15:5** [[Genesis ch: 15.md]] (votes: 15)
+- **Genesis 12:2** → **Deuteronomy 26:5** [[Deuteronomy ch: 26.md]] (votes: 11)
+- **Genesis 12:2** → **2 Samuel 7:9** [[2 Samuel ch: 7.md]] (votes: 35)
+- **Genesis 12:3** → **Psalms 72:17** [[Psalms ch: 72.md]] (votes: 9)
+- **Genesis 12:3** → **Matthew 25:45** [[Matthew ch: 25.md]] (votes: 6)
+- **Genesis 12:3** → **Ephesians 1:3** [[Ephesians ch: 1.md]] (votes: 6)
+- **Genesis 12:3** → **Genesis 27:29** [[Genesis ch: 27.md]] (votes: 29)
+- **Genesis 12:3** → **Genesis 28:14** [[Genesis ch: 28.md]] (votes: 20)
+- **Genesis 12:3** → **Revelation 7:9** [[Revelation ch: 7.md]] (votes: 6)
+- **Genesis 12:3** → **Genesis 22:18** [[Genesis ch: 22.md]] (votes: 29)
+- **Genesis 12:3** → **Genesis 30:27** [[Genesis ch: 30.md]] (votes: 8)
+- **Genesis 12:3** → **Genesis 30:30** [[Genesis ch: 30.md]] (votes: 5)
+- **Genesis 12:3** → **Romans 4:11** [[Romans ch: 4.md]] (votes: 15)
+- **Genesis 12:3** → **1 Corinthians 1:30** [[1 Corinthians ch: 1.md]] (votes: 4)
+- **Genesis 12:3** → **Matthew 25:40** [[Matthew ch: 25.md]] (votes: 6)
+- **Genesis 12:3** → **Galatians 3:16** [[Galatians ch: 3.md]] (votes: 15)
+- **Genesis 12:3** → **Numbers 24:9** [[Numbers ch: 24.md]] (votes: 26)
+- **Genesis 12:3** → **Genesis 18:18** [[Genesis ch: 18.md]] (votes: 16)
+- **Genesis 12:3** → **Galatians 3:28** [[Galatians ch: 3.md]] (votes: 10)
+- **Genesis 12:3** → **Colossians 3:11** [[Colossians ch: 3.md]] (votes: 7)
+- **Genesis 12:3** → **Genesis 26:4** [[Genesis ch: 26.md]] (votes: 24)
+- **Genesis 12:3** → **Genesis 39:5** [[Genesis ch: 39.md]] (votes: 7)
+- **Genesis 12:3** → **Galatians 3:8** [[Galatians ch: 3.md]] (votes: 39)
+- **Genesis 12:3** → **Exodus 23:22** [[Exodus ch: 23.md]] (votes: 13)
+- **Genesis 12:4** → **Hebrews 11:8** [[Hebrews ch: 11.md]] (votes: 15)
+- **Genesis 12:4** → **Genesis 11:27** [[Genesis ch: 11.md]] (votes: 4)
+- **Genesis 12:4** → **Genesis 11:31** [[Genesis ch: 11.md]] (votes: 5)
+- **Genesis 12:5** → **Acts 7:4** [[Acts ch: 7.md]] (votes: 3)
+- **Genesis 12:5** → **Genesis 11:31** [[Genesis ch: 11.md]] (votes: 4)
+- **Genesis 12:5** → **Genesis 14:21** [[Genesis ch: 14.md]] (votes: 2)
+- **Genesis 12:5** → **Genesis 14:14** [[Genesis ch: 14.md]] (votes: 5)
+- **Genesis 12:5** → **Genesis 10:19** [[Genesis ch: 10.md]] (votes: 2)
+- **Genesis 12:6** → **Hebrews 11:9** [[Hebrews ch: 11.md]] (votes: 6)
+- **Genesis 12:6** → **Genesis 34:2** [[Genesis ch: 34.md]] (votes: 2)
+- **Genesis 12:6** → **1 Kings 12:1** [[1 Kings ch: 12.md]] (votes: 2)
+- **Genesis 12:6** → **Judges 7:1** [[Judges ch: 7.md]] (votes: 3)
+- **Genesis 12:6** → **Genesis 13:7** [[Genesis ch: 13.md]] (votes: 4)
+- **Genesis 12:6** → **Genesis 33:18** [[Genesis ch: 33.md]] (votes: 2)
+- **Genesis 12:6** → **Judges 9:1** [[Judges ch: 9.md]] (votes: 2)
+- **Genesis 12:6** → **Genesis 10:15** [[Genesis ch: 10.md]] (votes: 2)
+- **Genesis 12:6** → **Genesis 35:4** [[Genesis ch: 35.md]] (votes: 4)
+- **Genesis 12:6** → **Acts 7:16** [[Acts ch: 7.md]] (votes: 2)
+- **Genesis 12:6** → **Deuteronomy 11:30** [[Deuteronomy ch: 11.md]] (votes: 6)
+- **Genesis 12:6** → **Joshua 24:32** [[Joshua ch: 24.md]] (votes: 2)
+- **Genesis 12:6** → **Joshua 20:7** [[Joshua ch: 20.md]] (votes: 2)
+- **Genesis 12:6** → **John 4:5** [[John ch: 4.md]] (votes: 2)
+- **Genesis 12:7** → **Deuteronomy 1:8** [[Deuteronomy ch: 1.md]] (votes: 2)
+- **Genesis 12:7** → **Genesis 33:20** [[Genesis ch: 33.md]] (votes: 2)
+- **Genesis 12:7** → **Genesis 13:18** [[Genesis ch: 13.md]] (votes: 6)
+- **Genesis 12:7** → **Genesis 28:13** [[Genesis ch: 28.md]] (votes: 2)
+- **Genesis 12:7** → **Genesis 17:1** [[Genesis ch: 17.md]] (votes: 9)
+- **Genesis 12:7** → **Galatians 3:16** [[Galatians ch: 3.md]] (votes: 9)
+- **Genesis 12:7** → **Genesis 26:25** [[Genesis ch: 26.md]] (votes: 5)
+- **Genesis 12:7** → **Genesis 22:9** [[Genesis ch: 22.md]] (votes: 3)
+- **Genesis 12:7** → **Genesis 12:8** [[Genesis ch: 12.md]] (votes: 4)
+- **Genesis 12:7** → **Genesis 17:8** [[Genesis ch: 17.md]] (votes: 10)
+- **Genesis 12:7** → **Genesis 18:1** [[Genesis ch: 18.md]] (votes: 9)
+- **Genesis 12:7** → **Deuteronomy 6:10** [[Deuteronomy ch: 6.md]] (votes: 2)
+- **Genesis 12:7** → **Hebrews 11:13** [[Hebrews ch: 11.md]] (votes: 3)
+- **Genesis 12:7** → **Galatians 4:28** [[Galatians ch: 4.md]] (votes: 2)
+- **Genesis 12:7** → **Genesis 17:3** [[Genesis ch: 17.md]] (votes: 3)
+- **Genesis 12:7** → **Romans 9:8** [[Romans ch: 9.md]] (votes: 3)
+- **Genesis 12:7** → **Genesis 8:20** [[Genesis ch: 8.md]] (votes: 2)
+- **Genesis 12:7** → **Exodus 6:3** [[Exodus ch: 6.md]] (votes: 2)
+- **Genesis 12:7** → **Numbers 32:11** [[Numbers ch: 32.md]] (votes: 4)
+- **Genesis 12:7** → **Exodus 33:1** [[Exodus ch: 33.md]] (votes: 5)
+- **Genesis 12:7** → **Genesis 26:3** [[Genesis ch: 26.md]] (votes: 2)
+- **Genesis 12:7** → **Genesis 13:4** [[Genesis ch: 13.md]] (votes: 7)
+- **Genesis 12:7** → **Genesis 32:30** [[Genesis ch: 32.md]] (votes: 5)
+- **Genesis 12:7** → **Genesis 15:18** [[Genesis ch: 15.md]] (votes: 3)
+- **Genesis 12:7** → **Genesis 13:15** [[Genesis ch: 13.md]] (votes: 9)
+- **Genesis 12:7** → **Deuteronomy 30:20** [[Deuteronomy ch: 30.md]] (votes: 2)
+- **Genesis 12:8** → **Joel 2:32** [[Joel ch: 2.md]] (votes: 2)
+- **Genesis 12:8** → **Isaiah 10:28** [[Isaiah ch: 10.md]] (votes: 2)
+- **Genesis 12:8** → **Nehemiah 11:31** [[Nehemiah ch: 11.md]] (votes: 5)
+- **Genesis 12:8** → **Joshua 18:22** [[Joshua ch: 18.md]] (votes: 2)
+- **Genesis 12:8** → **Genesis 28:19** [[Genesis ch: 28.md]] (votes: 3)
+- **Genesis 12:8** → **Genesis 4:26** [[Genesis ch: 4.md]] (votes: 5)
+- **Genesis 12:8** → **1 Corinthians 1:2** [[1 Corinthians ch: 1.md]] (votes: 3)
+- **Genesis 12:8** → **Joshua 7:2** [[Joshua ch: 7.md]] (votes: 2)
+- **Genesis 12:8** → **Psalms 116:4** [[Psalms ch: 116.md]] (votes: 2)
+- **Genesis 12:8** → **Acts 2:21** [[Acts ch: 2.md]] (votes: 2)
+- **Genesis 12:8** → **Genesis 35:3** [[Genesis ch: 35.md]] (votes: 2)
+- **Genesis 12:8** → **Genesis 21:33** [[Genesis ch: 21.md]] (votes: 4)
+- **Genesis 12:8** → **Joshua 8:3** [[Joshua ch: 8.md]] (votes: 2)
+- **Genesis 12:8** → **Joshua 8:17** [[Joshua ch: 8.md]] (votes: 2)
+- **Genesis 12:8** → **Genesis 13:4** [[Genesis ch: 13.md]] (votes: 3)
+- **Genesis 12:9** → **Psalms 105:13** [[Psalms ch: 105.md]] (votes: 2)
+- **Genesis 12:9** → **Genesis 13:3** [[Genesis ch: 13.md]] (votes: 4)
+- **Genesis 12:9** → **Genesis 13:1** [[Genesis ch: 13.md]] (votes: 3)
+- **Genesis 12:9** → **Genesis 24:62** [[Genesis ch: 24.md]] (votes: 3)
+- **Genesis 12:10** → **Genesis 42:5** [[Genesis ch: 42.md]] (votes: 2)
+- **Genesis 12:10** → **Psalms 34:19** [[Psalms ch: 34.md]] (votes: 2)
+- **Genesis 12:10** → **2 Kings 4:38** [[2 Kings ch: 4.md]] (votes: 2)
+- **Genesis 12:10** → **Jeremiah 14:1** [[Jeremiah ch: 14.md]] (votes: 2)
+- **Genesis 12:10** → **Genesis 43:1** [[Genesis ch: 43.md]] (votes: 5)
+- **Genesis 12:10** → **John 16:33** [[John ch: 16.md]] (votes: 2)
+- **Genesis 12:10** → **Acts 14:22** [[Acts ch: 14.md]] (votes: 1)
+- **Genesis 12:10** → **2 Samuel 21:1** [[2 Samuel ch: 21.md]] (votes: 2)
+- **Genesis 12:10** → **Genesis 47:13** [[Genesis ch: 47.md]] (votes: 2)
+- **Genesis 12:10** → **Ruth 1:1** [[Ruth ch: 1.md]] (votes: 2)
+- **Genesis 12:10** → **Psalms 105:13** [[Psalms ch: 105.md]] (votes: 2)
+- **Genesis 12:10** → **Acts 7:11** [[Acts ch: 7.md]] (votes: 2)
+- **Genesis 12:10** → **Psalms 107:34** [[Psalms ch: 107.md]] (votes: 2)
+- **Genesis 12:10** → **2 Kings 6:25** [[2 Kings ch: 6.md]] (votes: 2)
+- **Genesis 12:11** → **Genesis 26:7** [[Genesis ch: 26.md]] (votes: 4)
+- **Genesis 12:11** → **Genesis 29:17** [[Genesis ch: 29.md]] (votes: 3)
+- **Genesis 12:11** → **2 Samuel 11:2** [[2 Samuel ch: 11.md]] (votes: 2)
+- **Genesis 12:11** → **Proverbs 21:30** [[Proverbs ch: 21.md]] (votes: 3)
+- **Genesis 12:11** → **Song of Solomon 1:14** [[Song of Solomon ch: 1.md]] (votes: 2)
+- **Genesis 12:11** → **Genesis 12:14** [[Genesis ch: 12.md]] (votes: 3)
+- **Genesis 12:12** → **Matthew 10:28** [[Matthew ch: 10.md]] (votes: 4)
+- **Genesis 12:12** → **Proverbs 29:25** [[Proverbs ch: 29.md]] (votes: 4)
+- **Genesis 12:12** → **1 Samuel 27:1** [[1 Samuel ch: 27.md]] (votes: 1)
+- **Genesis 12:12** → **Genesis 20:11** [[Genesis ch: 20.md]] (votes: 7)
+- **Genesis 12:12** → **Genesis 26:7** [[Genesis ch: 26.md]] (votes: 6)
+- **Genesis 12:13** → **Genesis 26:7** [[Genesis ch: 26.md]] (votes: 6)
+- **Genesis 12:13** → **Genesis 20:5** [[Genesis ch: 20.md]] (votes: 3)
+- **Genesis 12:13** → **Colossians 3:6** [[Colossians ch: 3.md]] (votes: 0)
+- **Genesis 12:13** → **Genesis 11:29** [[Genesis ch: 11.md]] (votes: 1)
+- **Genesis 12:13** → **Isaiah 57:11** [[Isaiah ch: 57.md]] (votes: 1)
+- **Genesis 12:13** → **John 8:44** [[John ch: 8.md]] (votes: 0)
+- **Genesis 12:13** → **Genesis 20:2** [[Genesis ch: 20.md]] (votes: 5)
+- **Genesis 12:13** → **Ezekiel 18:4** [[Ezekiel ch: 18.md]] (votes: 1)
+- **Genesis 12:13** → **Romans 6:23** [[Romans ch: 6.md]] (votes: 0)
+- **Genesis 12:14** → **Genesis 3:6** [[Genesis ch: 3.md]] (votes: 2)
+- **Genesis 12:14** → **Genesis 39:7** [[Genesis ch: 39.md]] (votes: 2)
+- **Genesis 12:14** → **Matthew 5:28** [[Matthew ch: 5.md]] (votes: 2)
+- **Genesis 12:14** → **Genesis 6:2** [[Genesis ch: 6.md]] (votes: 2)
+- **Genesis 12:15** → **Proverbs 6:29** [[Proverbs ch: 6.md]] (votes: 2)
+- **Genesis 12:15** → **Jeremiah 46:17** [[Jeremiah ch: 46.md]] (votes: 2)
+- **Genesis 12:15** → **Exodus 2:5** [[Exodus ch: 2.md]] (votes: 2)
+- **Genesis 12:15** → **Genesis 40:2** [[Genesis ch: 40.md]] (votes: 2)
+- **Genesis 12:15** → **2 Kings 18:21** [[2 Kings ch: 18.md]] (votes: 2)
+- **Genesis 12:15** → **Jeremiah 25:19** [[Jeremiah ch: 25.md]] (votes: 1)
+- **Genesis 12:15** → **1 Kings 3:1** [[1 Kings ch: 3.md]] (votes: 2)
+- **Genesis 12:15** → **Psalms 105:4** [[Psalms ch: 105.md]] (votes: 2)
+- **Genesis 12:15** → **Genesis 20:2** [[Genesis ch: 20.md]] (votes: 3)
+- **Genesis 12:15** → **Proverbs 29:12** [[Proverbs ch: 29.md]] (votes: 2)
+- **Genesis 12:15** → **Genesis 41:1** [[Genesis ch: 41.md]] (votes: 2)
+- **Genesis 12:15** → **Ezekiel 32:2** [[Ezekiel ch: 32.md]] (votes: 1)
+- **Genesis 12:15** → **Exodus 2:15** [[Exodus ch: 2.md]] (votes: 2)
+- **Genesis 12:15** → **Hebrews 13:4** [[Hebrews ch: 13.md]] (votes: 2)
+- **Genesis 12:16** → **Genesis 32:5** [[Genesis ch: 32.md]] (votes: 2)
+- **Genesis 12:16** → **Genesis 24:35** [[Genesis ch: 24.md]] (votes: 2)
+- **Genesis 12:16** → **Genesis 13:2** [[Genesis ch: 13.md]] (votes: 3)
+- **Genesis 12:16** → **Job 42:12** [[Job ch: 42.md]] (votes: 2)
+- **Genesis 12:16** → **Genesis 26:14** [[Genesis ch: 26.md]] (votes: 2)
+- **Genesis 12:16** → **Genesis 20:14** [[Genesis ch: 20.md]] (votes: 6)
+- **Genesis 12:16** → **Job 1:3** [[Job ch: 1.md]] (votes: 2)
+- **Genesis 12:17** → **Hebrews 13:4** [[Hebrews ch: 13.md]] (votes: 1)
+- **Genesis 12:17** → **Job 34:19** [[Job ch: 34.md]] (votes: 1)
+- **Genesis 12:17** → **Genesis 20:18** [[Genesis ch: 20.md]] (votes: 5)
+- **Genesis 12:17** → **1 Chronicles 21:22** [[1 Chronicles ch: 21.md]] (votes: 2)
+- **Genesis 12:17** → **1 Chronicles 16:21** [[1 Chronicles ch: 16.md]] (votes: 6)
+- **Genesis 12:18** → **Genesis 31:26** [[Genesis ch: 31.md]] (votes: 2)
+- **Genesis 12:18** → **1 Samuel 14:43** [[1 Samuel ch: 14.md]] (votes: 3)
+- **Genesis 12:18** → **Exodus 32:21** [[Exodus ch: 32.md]] (votes: 2)
+- **Genesis 12:18** → **Genesis 4:10** [[Genesis ch: 4.md]] (votes: 2)
+- **Genesis 12:18** → **Proverbs 21:1** [[Proverbs ch: 21.md]] (votes: 3)
+- **Genesis 12:18** → **Genesis 3:13** [[Genesis ch: 3.md]] (votes: 2)
+- **Genesis 12:18** → **Joshua 7:19** [[Joshua ch: 7.md]] (votes: 2)
+- **Genesis 12:18** → **Genesis 44:15** [[Genesis ch: 44.md]] (votes: 2)
+- **Genesis 12:20** → **Exodus 18:27** [[Exodus ch: 18.md]] (votes: 2)
+- **Genesis 12:20** → **Proverbs 21:1** [[Proverbs ch: 21.md]] (votes: 3)

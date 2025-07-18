@@ -1,0 +1,157 @@
+# Isaiah 62
+
+**1** ¶ For Zion's sake will I not hold my peace, and for Jerusalem's sake I will not rest, until the righteousness thereof go forth as brightness, and the salvation thereof as a lamp [that] burneth.
+
+**2** And the Gentiles shall see thy righteousness, and all kings thy glory: and thou shalt be called by a new name, which the mouth of the LORD shall name.
+
+**3** Thou shalt also be a crown of glory in the hand of the LORD, and a royal diadem in the hand of thy God.
+
+**4** Thou shalt no more be termed Forsaken; neither shall thy land any more be termed Desolate: but thou shalt be called Hephzibah, and thy land Beulah: for the LORD delighteth in thee, and thy land shall be married.
+
+**5** For [as] a young man marrieth a virgin, [so] shall thy sons marry thee: and [as] the bridegroom rejoiceth over the bride, [so] shall thy God rejoice over thee.
+
+**6** ¶ I have set watchmen upon thy walls, O Jerusalem, [which] shall never hold their peace day nor night: ye that make mention of the LORD, keep not silence,
+
+**7** And give him no rest, till he establish, and till he make Jerusalem a praise in the earth.
+
+**8** The LORD hath sworn by his right hand, and by the arm of his strength, Surely I will no more give thy corn [to be] meat for thine enemies; and the sons of the stranger shall not drink thy wine, for the which thou hast laboured:
+
+**9** But they that have gathered it shall eat it, and praise the LORD; and they that have brought it together shall drink it in the courts of my holiness.
+
+**10** ¶ Go through, go through the gates; prepare ye the way of the people; cast up, cast up the highway; gather out the stones; lift up a standard for the people.
+
+**11** Behold, the LORD hath proclaimed unto the end of the world, Say ye to the daughter of Zion, Behold, thy salvation cometh; behold, his reward [is] with him, and his work before him.
+
+**12** And they shall call them, The holy people, The redeemed of the LORD: and thou shalt be called, Sought out, A city not forsaken.
+
+---
+
+## Cross-References
+
+- **Isaiah 62:1** → **Isaiah 51:9** [[Isaiah ch: 51.md]] (votes: 5)
+- **Isaiah 62:1** → **2 Thessalonians 3:1** [[2 Thessalonians ch: 3.md]] (votes: 3)
+- **Isaiah 62:1** → **Proverbs 4:18** [[Proverbs ch: 4.md]] (votes: 18)
+- **Isaiah 62:1** → **1 Peter 2:9** [[1 Peter ch: 2.md]] (votes: 9)
+- **Isaiah 62:1** → **Micah 4:2** [[Micah ch: 4.md]] (votes: 4)
+- **Isaiah 62:1** → **Hebrews 7:25** [[Hebrews ch: 7.md]] (votes: 6)
+- **Isaiah 62:1** → **Psalms 51:18** [[Psalms ch: 51.md]] (votes: 4)
+- **Isaiah 62:1** → **Matthew 5:16** [[Matthew ch: 5.md]] (votes: 4)
+- **Isaiah 62:1** → **Zechariah 2:12** [[Zechariah ch: 2.md]] (votes: 3)
+- **Isaiah 62:1** → **Luke 10:2** [[Luke ch: 10.md]] (votes: 2)
+- **Isaiah 62:1** → **Psalms 137:6** [[Psalms ch: 137.md]] (votes: 4)
+- **Isaiah 62:2** → **Isaiah 61:9** [[Isaiah ch: 61.md]] (votes: 6)
+- **Isaiah 62:2** → **Isaiah 65:15** [[Isaiah ch: 65.md]] (votes: 8)
+- **Isaiah 62:2** → **Isaiah 60:16** [[Isaiah ch: 60.md]] (votes: 5)
+- **Isaiah 62:2** → **Jeremiah 33:16** [[Jeremiah ch: 33.md]] (votes: 5)
+- **Isaiah 62:2** → **Isaiah 62:4** [[Isaiah ch: 62.md]] (votes: 7)
+- **Isaiah 62:2** → **Isaiah 66:19** [[Isaiah ch: 66.md]] (votes: 7)
+- **Isaiah 62:2** → **Isaiah 52:10** [[Isaiah ch: 52.md]] (votes: 6)
+- **Isaiah 62:2** → **Isaiah 62:12** [[Isaiah ch: 62.md]] (votes: 12)
+- **Isaiah 62:2** → **Genesis 32:28** [[Genesis ch: 32.md]] (votes: 6)
+- **Isaiah 62:2** → **Micah 5:8** [[Micah ch: 5.md]] (votes: 5)
+- **Isaiah 62:2** → **Colossians 1:23** [[Colossians ch: 1.md]] (votes: 4)
+- **Isaiah 62:2** → **Acts 9:15** [[Acts ch: 9.md]] (votes: 4)
+- **Isaiah 62:2** → **Isaiah 66:12** [[Isaiah ch: 66.md]] (votes: 9)
+- **Isaiah 62:2** → **Genesis 17:15** [[Genesis ch: 17.md]] (votes: 8)
+- **Isaiah 62:2** → **Revelation 2:17** [[Revelation ch: 2.md]] (votes: 9)
+- **Isaiah 62:2** → **Acts 11:26** [[Acts ch: 11.md]] (votes: 6)
+- **Isaiah 62:2** → **Acts 26:23** [[Acts ch: 26.md]] (votes: 4)
+- **Isaiah 62:2** → **Isaiah 49:6** [[Isaiah ch: 49.md]] (votes: 6)
+- **Isaiah 62:2** → **Genesis 17:5** [[Genesis ch: 17.md]] (votes: 11)
+- **Isaiah 62:2** → **Isaiah 49:23** [[Isaiah ch: 49.md]] (votes: 8)
+- **Isaiah 62:2** → **Isaiah 60:11** [[Isaiah ch: 60.md]] (votes: 4)
+- **Isaiah 62:3** → **Isaiah 28:5** [[Isaiah ch: 28.md]] (votes: 16)
+- **Isaiah 62:3** → **Zechariah 9:16** [[Zechariah ch: 9.md]] (votes: 14)
+- **Isaiah 62:3** → **Luke 2:14** [[Luke ch: 2.md]] (votes: 1)
+- **Isaiah 62:3** → **1 Thessalonians 2:19** [[1 Thessalonians ch: 2.md]] (votes: 14)
+- **Isaiah 62:4** → **Psalms 149:4** [[Psalms ch: 149.md]] (votes: 16)
+- **Isaiah 62:4** → **Isaiah 49:14** [[Isaiah ch: 49.md]] (votes: 9)
+- **Isaiah 62:4** → **Jeremiah 32:41** [[Jeremiah ch: 32.md]] (votes: 20)
+- **Isaiah 62:4** → **Isaiah 54:1** [[Isaiah ch: 54.md]] (votes: 16)
+- **Isaiah 62:4** → **Isaiah 60:15** [[Isaiah ch: 60.md]] (votes: 15)
+- **Isaiah 62:4** → **Isaiah 62:5** [[Isaiah ch: 62.md]] (votes: 14)
+- **Isaiah 62:4** → **Isaiah 62:12** [[Isaiah ch: 62.md]] (votes: 24)
+- **Isaiah 62:4** → **Hebrews 13:5** [[Hebrews ch: 13.md]] (votes: 6)
+- **Isaiah 62:4** → **Jeremiah 3:14** [[Jeremiah ch: 3.md]] (votes: 15)
+- **Isaiah 62:4** → **2 Corinthians 11:2** [[2 Corinthians ch: 11.md]] (votes: 12)
+- **Isaiah 62:4** → **1 Peter 2:10** [[1 Peter ch: 2.md]] (votes: 18)
+- **Isaiah 62:4** → **Revelation 21:2** [[Revelation ch: 21.md]] (votes: 10)
+- **Isaiah 62:4** → **Zephaniah 3:17** [[Zephaniah ch: 3.md]] (votes: 26)
+- **Isaiah 62:4** → **Isaiah 61:10** [[Isaiah ch: 61.md]] (votes: 18)
+- **Isaiah 62:4** → **John 3:29** [[John ch: 3.md]] (votes: 8)
+- **Isaiah 62:5** → **Isaiah 62:4** [[Isaiah ch: 62.md]] (votes: 6)
+- **Isaiah 62:5** → **Song of Solomon 3:11** [[Song of Solomon ch: 3.md]] (votes: 2)
+- **Isaiah 62:5** → **Hebrews 12:2** [[Hebrews ch: 12.md]] (votes: 5)
+- **Isaiah 62:5** → **Isaiah 65:19** [[Isaiah ch: 65.md]] (votes: 6)
+- **Isaiah 62:5** → **Jeremiah 32:41** [[Jeremiah ch: 32.md]] (votes: 3)
+- **Isaiah 62:6** → **Psalms 74:2** [[Psalms ch: 74.md]] (votes: 4)
+- **Isaiah 62:6** → **Jeremiah 6:17** [[Jeremiah ch: 6.md]] (votes: 6)
+- **Isaiah 62:6** → **Acts 10:4** [[Acts ch: 10.md]] (votes: 2)
+- **Isaiah 62:6** → **Psalms 74:18** [[Psalms ch: 74.md]] (votes: 3)
+- **Isaiah 62:6** → **Revelation 6:10** [[Revelation ch: 6.md]] (votes: 2)
+- **Isaiah 62:6** → **Genesis 32:26** [[Genesis ch: 32.md]] (votes: 3)
+- **Isaiah 62:6** → **1 Corinthians 12:28** [[1 Corinthians ch: 12.md]] (votes: 1)
+- **Isaiah 62:6** → **Isaiah 56:10** [[Isaiah ch: 56.md]] (votes: 5)
+- **Isaiah 62:6** → **Isaiah 43:26** [[Isaiah ch: 43.md]] (votes: 2)
+- **Isaiah 62:6** → **2 Chronicles 8:14** [[2 Chronicles ch: 8.md]] (votes: 3)
+- **Isaiah 62:6** → **Song of Solomon 5:7** [[Song of Solomon ch: 5.md]] (votes: 1)
+- **Isaiah 62:6** → **Acts 10:31** [[Acts ch: 10.md]] (votes: 1)
+- **Isaiah 62:6** → **Isaiah 62:1** [[Isaiah ch: 62.md]] (votes: 3)
+- **Isaiah 62:6** → **Genesis 32:12** [[Genesis ch: 32.md]] (votes: 3)
+- **Isaiah 62:6** → **Isaiah 52:8** [[Isaiah ch: 52.md]] (votes: 14)
+- **Isaiah 62:6** → **Luke 18:39** [[Luke ch: 18.md]] (votes: 3)
+- **Isaiah 62:6** → **Song of Solomon 3:3** [[Song of Solomon ch: 3.md]] (votes: 0)
+- **Isaiah 62:6** → **Hebrews 13:17** [[Hebrews ch: 13.md]] (votes: 5)
+- **Isaiah 62:6** → **1 Thessalonians 5:17** [[1 Thessalonians ch: 5.md]] (votes: 8)
+- **Isaiah 62:7** → **Revelation 11:15** [[Revelation ch: 11.md]] (votes: 6)
+- **Isaiah 62:7** → **Jeremiah 33:9** [[Jeremiah ch: 33.md]] (votes: 12)
+- **Isaiah 62:7** → **Isaiah 60:18** [[Isaiah ch: 60.md]] (votes: 11)
+- **Isaiah 62:7** → **Matthew 6:13** [[Matthew ch: 6.md]] (votes: 5)
+- **Isaiah 62:8** → **Deuteronomy 28:31** [[Deuteronomy ch: 28.md]] (votes: 8)
+- **Isaiah 62:8** → **Deuteronomy 28:33** [[Deuteronomy ch: 28.md]] (votes: 9)
+- **Isaiah 62:8** → **Jeremiah 5:17** [[Jeremiah ch: 5.md]] (votes: 5)
+- **Isaiah 62:8** → **Deuteronomy 32:40** [[Deuteronomy ch: 32.md]] (votes: 5)
+- **Isaiah 62:8** → **Leviticus 26:16** [[Leviticus ch: 26.md]] (votes: 5)
+- **Isaiah 62:8** → **Ezekiel 20:5** [[Ezekiel ch: 20.md]] (votes: 6)
+- **Isaiah 62:8** → **Isaiah 1:7** [[Isaiah ch: 1.md]] (votes: 5)
+- **Isaiah 62:9** → **Deuteronomy 12:7** [[Deuteronomy ch: 12.md]] (votes: 3)
+- **Isaiah 62:9** → **Deuteronomy 16:14** [[Deuteronomy ch: 16.md]] (votes: 2)
+- **Isaiah 62:9** → **Deuteronomy 12:12** [[Deuteronomy ch: 12.md]] (votes: 3)
+- **Isaiah 62:9** → **Deuteronomy 16:11** [[Deuteronomy ch: 16.md]] (votes: 3)
+- **Isaiah 62:10** → **Isaiah 40:3** [[Isaiah ch: 40.md]] (votes: 16)
+- **Isaiah 62:10** → **Isaiah 49:22** [[Isaiah ch: 49.md]] (votes: 14)
+- **Isaiah 62:10** → **Isaiah 48:20** [[Isaiah ch: 48.md]] (votes: 4)
+- **Isaiah 62:10** → **Isaiah 11:12** [[Isaiah ch: 11.md]] (votes: 7)
+- **Isaiah 62:10** → **Exodus 17:15** [[Exodus ch: 17.md]] (votes: 7)
+- **Isaiah 62:10** → **Isaiah 11:16** [[Isaiah ch: 11.md]] (votes: 3)
+- **Isaiah 62:10** → **Isaiah 18:3** [[Isaiah ch: 18.md]] (votes: 7)
+- **Isaiah 62:10** → **Isaiah 60:11** [[Isaiah ch: 60.md]] (votes: 3)
+- **Isaiah 62:10** → **Hebrews 12:13** [[Hebrews ch: 12.md]] (votes: 14)
+- **Isaiah 62:10** → **Isaiah 57:14** [[Isaiah ch: 57.md]] (votes: 17)
+- **Isaiah 62:10** → **Isaiah 52:11** [[Isaiah ch: 52.md]] (votes: 5)
+- **Isaiah 62:10** → **Matthew 22:9** [[Matthew ch: 22.md]] (votes: 8)
+- **Isaiah 62:10** → **Isaiah 11:10** [[Isaiah ch: 11.md]] (votes: 10)
+- **Isaiah 62:11** → **Matthew 21:5** [[Matthew ch: 21.md]] (votes: 59)
+- **Isaiah 62:11** → **John 12:15** [[John ch: 12.md]] (votes: 50)
+- **Isaiah 62:11** → **Revelation 22:12** [[Revelation ch: 22.md]] (votes: 32)
+- **Isaiah 62:11** → **Zechariah 9:9** [[Zechariah ch: 9.md]] (votes: 126)
+- **Isaiah 62:11** → **Isaiah 49:6** [[Isaiah ch: 49.md]] (votes: 16)
+- **Isaiah 62:11** → **Isaiah 49:4** [[Isaiah ch: 49.md]] (votes: 17)
+- **Isaiah 62:11** → **Mark 16:15** [[Mark ch: 16.md]] (votes: 13)
+- **Isaiah 62:12** → **John 10:16** [[John ch: 10.md]] (votes: 3)
+- **Isaiah 62:12** → **Isaiah 62:4** [[Isaiah ch: 62.md]] (votes: 8)
+- **Isaiah 62:12** → **Isaiah 42:16** [[Isaiah ch: 42.md]] (votes: 4)
+- **Isaiah 62:12** → **1 Peter 2:9** [[1 Peter ch: 2.md]] (votes: 10)
+- **Isaiah 62:12** → **Hebrews 13:5** [[Hebrews ch: 13.md]] (votes: 4)
+- **Isaiah 62:12** → **Deuteronomy 26:19** [[Deuteronomy ch: 26.md]] (votes: 8)
+- **Isaiah 62:12** → **Matthew 28:20** [[Matthew ch: 28.md]] (votes: 3)
+- **Isaiah 62:12** → **Deuteronomy 28:9** [[Deuteronomy ch: 28.md]] (votes: 7)
+- **Isaiah 62:12** → **Isaiah 35:9** [[Isaiah ch: 35.md]] (votes: 6)
+- **Isaiah 62:12** → **John 4:23** [[John ch: 4.md]] (votes: 3)
+- **Isaiah 62:12** → **Luke 19:10** [[Luke ch: 19.md]] (votes: 3)
+- **Isaiah 62:12** → **Isaiah 65:1** [[Isaiah ch: 65.md]] (votes: 3)
+- **Isaiah 62:12** → **Isaiah 60:21** [[Isaiah ch: 60.md]] (votes: 2)
+- **Isaiah 62:12** → **Matthew 16:18** [[Matthew ch: 16.md]] (votes: 4)
+- **Isaiah 62:12** → **Revelation 5:9** [[Revelation ch: 5.md]] (votes: 2)
+- **Isaiah 62:12** → **Deuteronomy 7:6** [[Deuteronomy ch: 7.md]] (votes: 6)
+- **Isaiah 62:12** → **Psalms 107:2** [[Psalms ch: 107.md]] (votes: 5)

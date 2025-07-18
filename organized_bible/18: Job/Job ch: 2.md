@@ -1,0 +1,167 @@
+# Job 2
+
+**1** ¶ Again there was a day when the sons of God came to present themselves before the LORD, and Satan came also among them to present himself before the LORD.
+
+**2** And the LORD said unto Satan, From whence comest thou? And Satan answered the LORD, and said, From going to and fro in the earth, and from walking up and down in it.
+
+**3** And the LORD said unto Satan, Hast thou considered my servant Job, that [there is] none like him in the earth, a perfect and an upright man, one that feareth God, and escheweth evil? and still he holdeth fast his integrity, although thou movedst me against him, to destroy him without cause.
+
+**4** And Satan answered the LORD, and said, Skin for skin, yea, all that a man hath will he give for his life.
+
+**5** But put forth thine hand now, and touch his bone and his flesh, and he will curse thee to thy face.
+
+**6** And the LORD said unto Satan, Behold, he [is] in thine hand; but save his life.
+
+**7** ¶ So went Satan forth from the presence of the LORD, and smote Job with sore boils from the sole of his foot unto his crown.
+
+**8** And he took him a potsherd to scrape himself withal; and he sat down among the ashes.
+
+**9** Then said his wife unto him, Dost thou still retain thine integrity? curse God, and die.
+
+**10** But he said unto her, Thou speakest as one of the foolish women speaketh. What? shall we receive good at the hand of God, and shall we not receive evil? In all this did not Job sin with his lips.
+
+**11** ¶ Now when Job's three friends heard of all this evil that was come upon him, they came every one from his own place; Eliphaz the Temanite, and Bildad the Shuhite, and Zophar the Naamathite: for they had made an appointment together to come to mourn with him and to comfort him.
+
+**12** And when they lifted up their eyes afar off, and knew him not, they lifted up their voice, and wept; and they rent every one his mantle, and sprinkled dust upon their heads toward heaven.
+
+**13** So they sat down with him upon the ground seven days and seven nights, and none spake a word unto him: for they saw that [his] grief was very great.
+
+---
+
+## Cross-References
+
+- **Job 2:1** → **Hebrews 1:14** [[Hebrews ch: 1.md]] (votes: 3)
+- **Job 2:1** → **Job 1:6** [[Job ch: 1.md]] (votes: 8)
+- **Job 2:1** → **Luke 1:19** [[Luke ch: 1.md]] (votes: 2)
+- **Job 2:2** → **John 14:30** [[John ch: 14.md]] (votes: 2)
+- **Job 2:2** → **Genesis 16:8** [[Genesis ch: 16.md]] (votes: 2)
+- **Job 2:2** → **Job 1:7** [[Job ch: 1.md]] (votes: 3)
+- **Job 2:2** → **2 Corinthians 4:4** [[2 Corinthians ch: 4.md]] (votes: 2)
+- **Job 2:2** → **1 Peter 5:8** [[1 Peter ch: 5.md]] (votes: 5)
+- **Job 2:3** → **Job 9:17** [[Job ch: 9.md]] (votes: 7)
+- **Job 2:3** → **1 Peter 1:7** [[1 Peter ch: 1.md]] (votes: 6)
+- **Job 2:3** → **Proverbs 16:17** [[Proverbs ch: 16.md]] (votes: 6)
+- **Job 2:3** → **Job 1:11** [[Job ch: 1.md]] (votes: 2)
+- **Job 2:3** → **Psalms 41:12** [[Psalms ch: 41.md]] (votes: 2)
+- **Job 2:3** → **Psalms 26:1** [[Psalms ch: 26.md]] (votes: 1)
+- **Job 2:3** → **Psalms 37:37** [[Psalms ch: 37.md]] (votes: 2)
+- **Job 2:3** → **Genesis 6:9** [[Genesis ch: 6.md]] (votes: 2)
+- **Job 2:3** → **Job 1:1** [[Job ch: 1.md]] (votes: 4)
+- **Job 2:3** → **Philippians 3:12** [[Philippians ch: 3.md]] (votes: 5)
+- **Job 2:3** → **Job 13:15** [[Job ch: 13.md]] (votes: 2)
+- **Job 2:3** → **Proverbs 14:2** [[Proverbs ch: 14.md]] (votes: 2)
+- **Job 2:3** → **Proverbs 13:6** [[Proverbs ch: 13.md]] (votes: 2)
+- **Job 2:3** → **Job 9:20** [[Job ch: 9.md]] (votes: 2)
+- **Job 2:3** → **Proverbs 15:8** [[Proverbs ch: 15.md]] (votes: 4)
+- **Job 2:3** → **Proverbs 11:8** [[Proverbs ch: 11.md]] (votes: 2)
+- **Job 2:3** → **Job 1:8** [[Job ch: 1.md]] (votes: 7)
+- **Job 2:3** → **John 9:3** [[John ch: 9.md]] (votes: 5)
+- **Job 2:3** → **2 Samuel 20:20** [[2 Samuel ch: 20.md]] (votes: 2)
+- **Job 2:3** → **1 Peter 5:10** [[1 Peter ch: 5.md]] (votes: 4)
+- **Job 2:3** → **James 1:12** [[James ch: 1.md]] (votes: 7)
+- **Job 2:4** → **Jeremiah 41:8** [[Jeremiah ch: 41.md]] (votes: 3)
+- **Job 2:4** → **Matthew 6:25** [[Matthew ch: 6.md]] (votes: 5)
+- **Job 2:4** → **Matthew 16:26** [[Matthew ch: 16.md]] (votes: 5)
+- **Job 2:5** → **Job 1:5** [[Job ch: 1.md]] (votes: 3)
+- **Job 2:5** → **Leviticus 24:15** [[Leviticus ch: 24.md]] (votes: 3)
+- **Job 2:5** → **Isaiah 8:21** [[Isaiah ch: 8.md]] (votes: 2)
+- **Job 2:5** → **1 Chronicles 21:17** [[1 Chronicles ch: 21.md]] (votes: 1)
+- **Job 2:5** → **Job 2:9** [[Job ch: 2.md]] (votes: 2)
+- **Job 2:5** → **Job 1:11** [[Job ch: 1.md]] (votes: 7)
+- **Job 2:5** → **Psalms 39:10** [[Psalms ch: 39.md]] (votes: 2)
+- **Job 2:6** → **Psalms 65:7** [[Psalms ch: 65.md]] (votes: 1)
+- **Job 2:6** → **Revelation 2:10** [[Revelation ch: 2.md]] (votes: 4)
+- **Job 2:6** → **Job 1:12** [[Job ch: 1.md]] (votes: 4)
+- **Job 2:6** → **Revelation 20:7** [[Revelation ch: 20.md]] (votes: 1)
+- **Job 2:6** → **1 Corinthians 10:13** [[1 Corinthians ch: 10.md]] (votes: 7)
+- **Job 2:7** → **Job 30:30** [[Job ch: 30.md]] (votes: 5)
+- **Job 2:7** → **Job 7:5** [[Job ch: 7.md]] (votes: 3)
+- **Job 2:7** → **Deuteronomy 28:35** [[Deuteronomy ch: 28.md]] (votes: 7)
+- **Job 2:7** → **Isaiah 1:6** [[Isaiah ch: 1.md]] (votes: 5)
+- **Job 2:7** → **1 Kings 22:22** [[1 Kings ch: 22.md]] (votes: 2)
+- **Job 2:7** → **Revelation 16:11** [[Revelation ch: 16.md]] (votes: 2)
+- **Job 2:7** → **Isaiah 3:17** [[Isaiah ch: 3.md]] (votes: 2)
+- **Job 2:7** → **Deuteronomy 28:27** [[Deuteronomy ch: 28.md]] (votes: 3)
+- **Job 2:8** → **2 Samuel 13:19** [[2 Samuel ch: 13.md]] (votes: 3)
+- **Job 2:8** → **Ezekiel 27:30** [[Ezekiel ch: 27.md]] (votes: 6)
+- **Job 2:8** → **Psalms 38:7** [[Psalms ch: 38.md]] (votes: 3)
+- **Job 2:8** → **Job 42:6** [[Job ch: 42.md]] (votes: 7)
+- **Job 2:8** → **Isaiah 61:3** [[Isaiah ch: 61.md]] (votes: 2)
+- **Job 2:8** → **Matthew 11:21** [[Matthew ch: 11.md]] (votes: 5)
+- **Job 2:8** → **Jeremiah 6:26** [[Jeremiah ch: 6.md]] (votes: 3)
+- **Job 2:8** → **Psalms 38:5** [[Psalms ch: 38.md]] (votes: 4)
+- **Job 2:8** → **Jonah 3:6** [[Jonah ch: 3.md]] (votes: 6)
+- **Job 2:9** → **Genesis 3:12** [[Genesis ch: 3.md]] (votes: 3)
+- **Job 2:9** → **Job 1:11** [[Job ch: 1.md]] (votes: 5)
+- **Job 2:9** → **Job 2:3** [[Job ch: 2.md]] (votes: 8)
+- **Job 2:9** → **Genesis 3:6** [[Genesis ch: 3.md]] (votes: 5)
+- **Job 2:9** → **1 Kings 11:4** [[1 Kings ch: 11.md]] (votes: 4)
+- **Job 2:9** → **2 Kings 6:33** [[2 Kings ch: 6.md]] (votes: 5)
+- **Job 2:9** → **Job 2:5** [[Job ch: 2.md]] (votes: 8)
+- **Job 2:9** → **Malachi 3:14** [[Malachi ch: 3.md]] (votes: 6)
+- **Job 2:10** → **Genesis 3:17** [[Genesis ch: 3.md]] (votes: 1)
+- **Job 2:10** → **2 Samuel 19:22** [[2 Samuel ch: 19.md]] (votes: -2)
+- **Job 2:10** → **John 18:11** [[John ch: 18.md]] (votes: 6)
+- **Job 2:10** → **2 Samuel 13:13** [[2 Samuel ch: 13.md]] (votes: 0)
+- **Job 2:10** → **Romans 12:12** [[Romans ch: 12.md]] (votes: 21)
+- **Job 2:10** → **2 Samuel 24:10** [[2 Samuel ch: 24.md]] (votes: 3)
+- **Job 2:10** → **Psalms 59:12** [[Psalms ch: 59.md]] (votes: -2)
+- **Job 2:10** → **Job 1:10** [[Job ch: 1.md]] (votes: -3)
+- **Job 2:10** → **Matthew 25:2** [[Matthew ch: 25.md]] (votes: -2)
+- **Job 2:10** → **2 Chronicles 16:9** [[2 Chronicles ch: 16.md]] (votes: -1)
+- **Job 2:10** → **James 3:2** [[James ch: 3.md]] (votes: 0)
+- **Job 2:10** → **Proverbs 9:6** [[Proverbs ch: 9.md]] (votes: -3)
+- **Job 2:10** → **Matthew 16:23** [[Matthew ch: 16.md]] (votes: 14)
+- **Job 2:10** → **Proverbs 9:13** [[Proverbs ch: 9.md]] (votes: -3)
+- **Job 2:10** → **2 Samuel 19:28** [[2 Samuel ch: 19.md]] (votes: -2)
+- **Job 2:10** → **James 1:12** [[James ch: 1.md]] (votes: 43)
+- **Job 2:10** → **Psalms 39:1** [[Psalms ch: 39.md]] (votes: 1)
+- **Job 2:11** → **Proverbs 17:17** [[Proverbs ch: 17.md]] (votes: 4)
+- **Job 2:11** → **Jeremiah 49:7** [[Jeremiah ch: 49.md]] (votes: 4)
+- **Job 2:11** → **Job 8:1** [[Job ch: 8.md]] (votes: 1)
+- **Job 2:11** → **Romans 12:15** [[Romans ch: 12.md]] (votes: 12)
+- **Job 2:11** → **Genesis 37:35** [[Genesis ch: 37.md]] (votes: 2)
+- **Job 2:11** → **Job 6:19** [[Job ch: 6.md]] (votes: 2)
+- **Job 2:11** → **Job 13:4** [[Job ch: 13.md]] (votes: 1)
+- **Job 2:11** → **Genesis 36:15** [[Genesis ch: 36.md]] (votes: 2)
+- **Job 2:11** → **Proverbs 27:10** [[Proverbs ch: 27.md]] (votes: 1)
+- **Job 2:11** → **Job 42:7** [[Job ch: 42.md]] (votes: 1)
+- **Job 2:11** → **Genesis 25:2** [[Genesis ch: 25.md]] (votes: 4)
+- **Job 2:11** → **Isaiah 51:19** [[Isaiah ch: 51.md]] (votes: 1)
+- **Job 2:11** → **Genesis 36:11** [[Genesis ch: 36.md]] (votes: 2)
+- **Job 2:11** → **John 11:19** [[John ch: 11.md]] (votes: 2)
+- **Job 2:11** → **Proverbs 18:24** [[Proverbs ch: 18.md]] (votes: 1)
+- **Job 2:11** → **1 Chronicles 1:32** [[1 Chronicles ch: 1.md]] (votes: 2)
+- **Job 2:11** → **Job 15:1** [[Job ch: 15.md]] (votes: 1)
+- **Job 2:11** → **Job 16:2** [[Job ch: 16.md]] (votes: 2)
+- **Job 2:11** → **Job 19:19** [[Job ch: 19.md]] (votes: 1)
+- **Job 2:11** → **Job 6:14** [[Job ch: 6.md]] (votes: 4)
+- **Job 2:11** → **Job 42:11** [[Job ch: 42.md]] (votes: 8)
+- **Job 2:11** → **1 Corinthians 12:26** [[1 Corinthians ch: 12.md]] (votes: 3)
+- **Job 2:11** → **Hebrews 13:3** [[Hebrews ch: 13.md]] (votes: 1)
+- **Job 2:11** → **Job 19:21** [[Job ch: 19.md]] (votes: 2)
+- **Job 2:11** → **Job 16:20** [[Job ch: 16.md]] (votes: 1)
+- **Job 2:11** → **Job 18:1** [[Job ch: 18.md]] (votes: 1)
+- **Job 2:12** → **2 Samuel 13:36** [[2 Samuel ch: 13.md]] (votes: 2)
+- **Job 2:12** → **1 Samuel 30:4** [[1 Samuel ch: 30.md]] (votes: 2)
+- **Job 2:12** → **Job 1:20** [[Job ch: 1.md]] (votes: 4)
+- **Job 2:12** → **Genesis 27:34** [[Genesis ch: 27.md]] (votes: 2)
+- **Job 2:12** → **1 Samuel 11:4** [[1 Samuel ch: 11.md]] (votes: 2)
+- **Job 2:12** → **Joshua 7:6** [[Joshua ch: 7.md]] (votes: 5)
+- **Job 2:12** → **Lamentations 2:10** [[Lamentations ch: 2.md]] (votes: 7)
+- **Job 2:12** → **Revelation 18:19** [[Revelation ch: 18.md]] (votes: 2)
+- **Job 2:12** → **Job 19:14** [[Job ch: 19.md]] (votes: 2)
+- **Job 2:12** → **Esther 4:1** [[Esther ch: 4.md]] (votes: 2)
+- **Job 2:12** → **Nehemiah 9:1** [[Nehemiah ch: 9.md]] (votes: 5)
+- **Job 2:12** → **Judges 2:4** [[Judges ch: 2.md]] (votes: 2)
+- **Job 2:12** → **Ezekiel 27:30** [[Ezekiel ch: 27.md]] (votes: 6)
+- **Job 2:13** → **Genesis 50:10** [[Genesis ch: 50.md]] (votes: 9)
+- **Job 2:13** → **Isaiah 3:26** [[Isaiah ch: 3.md]] (votes: 5)
+- **Job 2:13** → **Isaiah 47:1** [[Isaiah ch: 47.md]] (votes: 1)
+- **Job 2:13** → **Genesis 1:8** [[Genesis ch: 1.md]] (votes: 3)
+- **Job 2:13** → **Ezekiel 3:15** [[Ezekiel ch: 3.md]] (votes: 6)
+- **Job 2:13** → **Job 4:2** [[Job ch: 4.md]] (votes: 3)
+- **Job 2:13** → **Psalms 77:4** [[Psalms ch: 77.md]] (votes: 3)
+- **Job 2:13** → **Nehemiah 1:4** [[Nehemiah ch: 1.md]] (votes: 7)
+- **Job 2:13** → **Genesis 1:5** [[Genesis ch: 1.md]] (votes: 3)
+- **Job 2:13** → **Ezra 9:3** [[Ezra ch: 9.md]] (votes: 3)

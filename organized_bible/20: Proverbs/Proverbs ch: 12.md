@@ -1,0 +1,317 @@
+# Proverbs 12
+
+**1** ¶ Whoso loveth instruction loveth knowledge: but he that hateth reproof [is] brutish.
+
+**2** ¶ A good [man] obtaineth favour of the LORD: but a man of wicked devices will he condemn.
+
+**3** ¶ A man shall not be established by wickedness: but the root of the righteous shall not be moved.
+
+**4** ¶ A virtuous woman [is] a crown to her husband: but she that maketh ashamed [is] as rottenness in his bones.
+
+**5** ¶ The thoughts of the righteous [are] right: [but] the counsels of the wicked [are] deceit.
+
+**6** ¶ The words of the wicked [are] to lie in wait for blood: but the mouth of the upright shall deliver them.
+
+**7** ¶ The wicked are overthrown, and [are] not: but the house of the righteous shall stand.
+
+**8** ¶ A man shall be commended according to his wisdom: but he that is of a perverse heart shall be despised.
+
+**9** ¶ [He that is] despised, and hath a servant, [is] better than he that honoureth himself, and lacketh bread.
+
+**10** ¶ A righteous [man] regardeth the life of his beast: but the tender mercies of the wicked [are] cruel.
+
+**11** ¶ He that tilleth his land shall be satisfied with bread: but he that followeth vain [persons is] void of understanding.
+
+**12** ¶ The wicked desireth the net of evil [men]: but the root of the righteous yieldeth [fruit].
+
+**13** ¶ The wicked is snared by the transgression of [his] lips: but the just shall come out of trouble.
+
+**14** ¶ A man shall be satisfied with good by the fruit of [his] mouth: and the recompence of a man's hands shall be rendered unto him.
+
+**15** ¶ The way of a fool [is] right in his own eyes: but he that hearkeneth unto counsel [is] wise.
+
+**16** ¶ A fool's wrath is presently known: but a prudent [man] covereth shame.
+
+**17** ¶ [He that] speaketh truth sheweth forth righteousness: but a false witness deceit.
+
+**18** ¶ There is that speaketh like the piercings of a sword: but the tongue of the wise [is] health.
+
+**19** ¶ The lip of truth shall be established for ever: but a lying tongue [is] but for a moment.
+
+**20** ¶ Deceit [is] in the heart of them that imagine evil: but to the counsellors of peace [is] joy.
+
+**21** ¶ There shall no evil happen to the just: but the wicked shall be filled with mischief.
+
+**22** ¶ Lying lips [are] abomination to the LORD: but they that deal truly [are] his delight.
+
+**23** ¶ A prudent man concealeth knowledge: but the heart of fools proclaimeth foolishness.
+
+**24** ¶ The hand of the diligent shall bear rule: but the slothful shall be under tribute.
+
+**25** ¶ Heaviness in the heart of man maketh it stoop: but a good word maketh it glad.
+
+**26** ¶ The righteous [is] more excellent than his neighbour: but the way of the wicked seduceth them.
+
+**27** ¶ The slothful [man] roasteth not that which he took in hunting: but the substance of a diligent man [is] precious.
+
+**28** ¶ In the way of righteousness [is] life; and [in] the pathway [thereof there is] no death.
+
+---
+
+## Cross-References
+
+- **Proverbs 12:1** → **Psalms 119:27** [[Psalms ch: 119.md]] (votes: 5)
+- **Proverbs 12:1** → **2 Thessalonians 2:10** [[2 Thessalonians ch: 2.md]] (votes: 10)
+- **Proverbs 12:1** → **Proverbs 8:32** [[Proverbs ch: 8.md]] (votes: 7)
+- **Proverbs 12:1** → **Proverbs 18:1** [[Proverbs ch: 18.md]] (votes: 12)
+- **Proverbs 12:1** → **Proverbs 8:17** [[Proverbs ch: 8.md]] (votes: 10)
+- **Proverbs 12:1** → **Psalms 32:9** [[Psalms ch: 32.md]] (votes: 11)
+- **Proverbs 12:1** → **Isaiah 1:3** [[Isaiah ch: 1.md]] (votes: 7)
+- **Proverbs 12:1** → **Psalms 92:6** [[Psalms ch: 92.md]] (votes: 10)
+- **Proverbs 12:1** → **Proverbs 15:10** [[Proverbs ch: 15.md]] (votes: 25)
+- **Proverbs 12:2** → **Psalms 9:15** [[Psalms ch: 9.md]] (votes: 3)
+- **Proverbs 12:2** → **Ecclesiastes 8:8** [[Ecclesiastes ch: 8.md]] (votes: 3)
+- **Proverbs 12:2** → **Proverbs 8:35** [[Proverbs ch: 8.md]] (votes: 10)
+- **Proverbs 12:2** → **Proverbs 1:31** [[Proverbs ch: 1.md]] (votes: 4)
+- **Proverbs 12:2** → **Proverbs 6:18** [[Proverbs ch: 6.md]] (votes: 3)
+- **Proverbs 12:2** → **Psalms 112:5** [[Psalms ch: 112.md]] (votes: 6)
+- **Proverbs 12:2** → **Acts 11:24** [[Acts ch: 11.md]] (votes: 8)
+- **Proverbs 12:2** → **Romans 5:7** [[Romans ch: 5.md]] (votes: 5)
+- **Proverbs 12:3** → **Proverbs 10:25** [[Proverbs ch: 10.md]] (votes: 12)
+- **Proverbs 12:3** → **Job 15:29** [[Job ch: 15.md]] (votes: 1)
+- **Proverbs 12:3** → **Proverbs 12:12** [[Proverbs ch: 12.md]] (votes: 6)
+- **Proverbs 12:3** → **Ephesians 3:17** [[Ephesians ch: 3.md]] (votes: 8)
+- **Proverbs 12:3** → **Psalms 15:5** [[Psalms ch: 15.md]] (votes: 3)
+- **Proverbs 12:3** → **Colossians 2:7** [[Colossians ch: 2.md]] (votes: 4)
+- **Proverbs 12:3** → **1 Samuel 25:33** [[1 Samuel ch: 25.md]] (votes: 2)
+- **Proverbs 12:4** → **1 Corinthians 11:7** [[1 Corinthians ch: 11.md]] (votes: 5)
+- **Proverbs 12:4** → **Proverbs 21:19** [[Proverbs ch: 21.md]] (votes: 8)
+- **Proverbs 12:4** → **1 Corinthians 11:11** [[1 Corinthians ch: 11.md]] (votes: 8)
+- **Proverbs 12:4** → **Proverbs 21:9** [[Proverbs ch: 21.md]] (votes: 8)
+- **Proverbs 12:4** → **Proverbs 14:1** [[Proverbs ch: 14.md]] (votes: 10)
+- **Proverbs 12:4** → **Proverbs 14:30** [[Proverbs ch: 14.md]] (votes: 10)
+- **Proverbs 12:4** → **Habakkuk 3:16** [[Habakkuk ch: 3.md]] (votes: 1)
+- **Proverbs 12:5** → **1 Corinthians 4:5** [[1 Corinthians ch: 4.md]] (votes: 2)
+- **Proverbs 12:5** → **Matthew 26:4** [[Matthew ch: 26.md]] (votes: 2)
+- **Proverbs 12:5** → **Isaiah 55:7** [[Isaiah ch: 55.md]] (votes: 4)
+- **Proverbs 12:5** → **Matthew 2:16** [[Matthew ch: 2.md]] (votes: 2)
+- **Proverbs 12:5** → **Proverbs 11:23** [[Proverbs ch: 11.md]] (votes: 2)
+- **Proverbs 12:5** → **Psalms 139:23** [[Psalms ch: 139.md]] (votes: 5)
+- **Proverbs 12:5** → **Proverbs 24:9** [[Proverbs ch: 24.md]] (votes: 2)
+- **Proverbs 12:5** → **2 Corinthians 4:2** [[2 Corinthians ch: 4.md]] (votes: 2)
+- **Proverbs 12:5** → **Jeremiah 4:14** [[Jeremiah ch: 4.md]] (votes: 3)
+- **Proverbs 12:5** → **Psalms 119:15** [[Psalms ch: 119.md]] (votes: 2)
+- **Proverbs 12:6** → **Isaiah 59:7** [[Isaiah ch: 59.md]] (votes: 2)
+- **Proverbs 12:6** → **Acts 23:12** [[Acts ch: 23.md]] (votes: 1)
+- **Proverbs 12:6** → **Acts 23:15** [[Acts ch: 23.md]] (votes: 1)
+- **Proverbs 12:6** → **Proverbs 14:3** [[Proverbs ch: 14.md]] (votes: 9)
+- **Proverbs 12:6** → **Jeremiah 5:26** [[Jeremiah ch: 5.md]] (votes: 3)
+- **Proverbs 12:6** → **Acts 25:3** [[Acts ch: 25.md]] (votes: 0)
+- **Proverbs 12:7** → **Proverbs 11:21** [[Proverbs ch: 11.md]] (votes: 4)
+- **Proverbs 12:7** → **Proverbs 14:1** [[Proverbs ch: 14.md]] (votes: 2)
+- **Proverbs 12:7** → **Esther 9:14** [[Esther ch: 9.md]] (votes: 3)
+- **Proverbs 12:7** → **Job 11:20** [[Job ch: 11.md]] (votes: 3)
+- **Proverbs 12:7** → **Psalms 37:10** [[Psalms ch: 37.md]] (votes: 2)
+- **Proverbs 12:7** → **2 Samuel 7:16** [[2 Samuel ch: 7.md]] (votes: 3)
+- **Proverbs 12:7** → **Proverbs 14:11** [[Proverbs ch: 14.md]] (votes: 2)
+- **Proverbs 12:7** → **Job 34:25** [[Job ch: 34.md]] (votes: 2)
+- **Proverbs 12:7** → **Proverbs 15:25** [[Proverbs ch: 15.md]] (votes: 2)
+- **Proverbs 12:7** → **2 Samuel 7:26** [[2 Samuel ch: 7.md]] (votes: 3)
+- **Proverbs 12:7** → **Proverbs 10:25** [[Proverbs ch: 10.md]] (votes: 4)
+- **Proverbs 12:8** → **Acts 12:23** [[Acts ch: 12.md]] (votes: 3)
+- **Proverbs 12:8** → **Luke 16:8** [[Luke ch: 16.md]] (votes: 3)
+- **Proverbs 12:8** → **Genesis 41:39** [[Genesis ch: 41.md]] (votes: 3)
+- **Proverbs 12:8** → **Proverbs 5:23** [[Proverbs ch: 5.md]] (votes: 2)
+- **Proverbs 12:8** → **2 Corinthians 10:18** [[2 Corinthians ch: 10.md]] (votes: 4)
+- **Proverbs 12:8** → **1 Samuel 18:30** [[1 Samuel ch: 18.md]] (votes: 2)
+- **Proverbs 12:8** → **1 Samuel 16:18** [[1 Samuel ch: 16.md]] (votes: 2)
+- **Proverbs 12:8** → **Psalms 132:18** [[Psalms ch: 132.md]] (votes: 3)
+- **Proverbs 12:8** → **1 Corinthians 4:5** [[1 Corinthians ch: 4.md]] (votes: 4)
+- **Proverbs 12:8** → **Daniel 12:2** [[Daniel ch: 12.md]] (votes: 3)
+- **Proverbs 12:8** → **Ecclesiastes 8:1** [[Ecclesiastes ch: 8.md]] (votes: 1)
+- **Proverbs 12:8** → **1 Samuel 25:17** [[1 Samuel ch: 25.md]] (votes: 2)
+- **Proverbs 12:8** → **Proverbs 3:35** [[Proverbs ch: 3.md]] (votes: 3)
+- **Proverbs 12:8** → **Proverbs 1:26** [[Proverbs ch: 1.md]] (votes: 2)
+- **Proverbs 12:8** → **1 Samuel 13:13** [[1 Samuel ch: 13.md]] (votes: 2)
+- **Proverbs 12:9** → **Luke 14:11** [[Luke ch: 14.md]] (votes: 10)
+- **Proverbs 12:9** → **Proverbs 13:7** [[Proverbs ch: 13.md]] (votes: 6)
+- **Proverbs 12:10** → **Judges 1:7** [[Judges ch: 1.md]] (votes: 0)
+- **Proverbs 12:10** → **Deuteronomy 25:4** [[Deuteronomy ch: 25.md]] (votes: 15)
+- **Proverbs 12:10** → **1 Samuel 11:2** [[1 Samuel ch: 11.md]] (votes: -1)
+- **Proverbs 12:10** → **John 4:11** [[John ch: 4.md]] (votes: 0)
+- **Proverbs 12:10** → **1 John 3:17** [[1 John ch: 3.md]] (votes: 2)
+- **Proverbs 12:11** → **2 Thessalonians 3:8** [[2 Thessalonians ch: 3.md]] (votes: 6)
+- **Proverbs 12:11** → **Genesis 3:19** [[Genesis ch: 3.md]] (votes: 4)
+- **Proverbs 12:11** → **Proverbs 14:4** [[Proverbs ch: 14.md]] (votes: 5)
+- **Proverbs 12:11** → **Proverbs 14:23** [[Proverbs ch: 14.md]] (votes: 12)
+- **Proverbs 12:11** → **Judges 9:4** [[Judges ch: 9.md]] (votes: 2)
+- **Proverbs 12:11** → **Proverbs 13:23** [[Proverbs ch: 13.md]] (votes: 1)
+- **Proverbs 12:11** → **Proverbs 9:16** [[Proverbs ch: 9.md]] (votes: 2)
+- **Proverbs 12:11** → **Psalms 128:2** [[Psalms ch: 128.md]] (votes: 8)
+- **Proverbs 12:11** → **Proverbs 27:27** [[Proverbs ch: 27.md]] (votes: 1)
+- **Proverbs 12:11** → **Ephesians 4:28** [[Ephesians ch: 4.md]] (votes: 7)
+- **Proverbs 12:11** → **Proverbs 13:20** [[Proverbs ch: 13.md]] (votes: 4)
+- **Proverbs 12:11** → **Proverbs 28:19** [[Proverbs ch: 28.md]] (votes: 14)
+- **Proverbs 12:11** → **Psalms 26:4** [[Psalms ch: 26.md]] (votes: 2)
+- **Proverbs 12:11** → **Proverbs 6:32** [[Proverbs ch: 6.md]] (votes: 3)
+- **Proverbs 12:11** → **Proverbs 9:6** [[Proverbs ch: 9.md]] (votes: 6)
+- **Proverbs 12:11** → **Proverbs 9:13** [[Proverbs ch: 9.md]] (votes: 2)
+- **Proverbs 12:11** → **Jonah 2:8** [[Jonah ch: 2.md]] (votes: 1)
+- **Proverbs 12:11** → **Proverbs 7:7** [[Proverbs ch: 7.md]] (votes: 5)
+- **Proverbs 12:12** → **Psalms 10:9** [[Psalms ch: 10.md]] (votes: 3)
+- **Proverbs 12:12** → **Psalms 1:3** [[Psalms ch: 1.md]] (votes: 3)
+- **Proverbs 12:12** → **John 15:16** [[John ch: 15.md]] (votes: 2)
+- **Proverbs 12:12** → **Psalms 9:15** [[Psalms ch: 9.md]] (votes: 2)
+- **Proverbs 12:12** → **John 15:5** [[John ch: 15.md]] (votes: 4)
+- **Proverbs 12:12** → **Isaiah 27:6** [[Isaiah ch: 27.md]] (votes: 3)
+- **Proverbs 12:12** → **Micah 7:2** [[Micah ch: 7.md]] (votes: 1)
+- **Proverbs 12:12** → **Isaiah 37:31** [[Isaiah ch: 37.md]] (votes: 3)
+- **Proverbs 12:12** → **Proverbs 10:15** [[Proverbs ch: 10.md]] (votes: 2)
+- **Proverbs 12:12** → **Romans 6:22** [[Romans ch: 6.md]] (votes: 2)
+- **Proverbs 12:13** → **Proverbs 6:2** [[Proverbs ch: 6.md]] (votes: 6)
+- **Proverbs 12:13** → **Matthew 27:25** [[Matthew ch: 27.md]] (votes: 4)
+- **Proverbs 12:13** → **Proverbs 11:8** [[Proverbs ch: 11.md]] (votes: 7)
+- **Proverbs 12:13** → **Proverbs 15:2** [[Proverbs ch: 15.md]] (votes: 4)
+- **Proverbs 12:13** → **1 Kings 2:23** [[1 Kings ch: 2.md]] (votes: 4)
+- **Proverbs 12:13** → **Psalms 34:19** [[Psalms ch: 34.md]] (votes: 4)
+- **Proverbs 12:13** → **2 Peter 2:9** [[2 Peter ch: 2.md]] (votes: 5)
+- **Proverbs 12:13** → **Daniel 6:24** [[Daniel ch: 6.md]] (votes: 6)
+- **Proverbs 12:13** → **Psalms 5:6** [[Psalms ch: 5.md]] (votes: 4)
+- **Proverbs 12:13** → **Ecclesiastes 7:18** [[Ecclesiastes ch: 7.md]] (votes: 5)
+- **Proverbs 12:13** → **Genesis 48:16** [[Genesis ch: 48.md]] (votes: 4)
+- **Proverbs 12:13** → **2 Samuel 4:9** [[2 Samuel ch: 4.md]] (votes: 4)
+- **Proverbs 12:13** → **Proverbs 21:23** [[Proverbs ch: 21.md]] (votes: 9)
+- **Proverbs 12:13** → **Psalms 64:8** [[Psalms ch: 64.md]] (votes: 7)
+- **Proverbs 12:14** → **Hebrews 2:2** [[Hebrews ch: 2.md]] (votes: 3)
+- **Proverbs 12:14** → **Matthew 16:27** [[Matthew ch: 16.md]] (votes: 4)
+- **Proverbs 12:14** → **Psalms 63:5** [[Psalms ch: 63.md]] (votes: 8)
+- **Proverbs 12:14** → **Proverbs 15:23** [[Proverbs ch: 15.md]] (votes: 6)
+- **Proverbs 12:14** → **Hebrews 11:26** [[Hebrews ch: 11.md]] (votes: 3)
+- **Proverbs 12:14** → **Proverbs 13:2** [[Proverbs ch: 13.md]] (votes: 9)
+- **Proverbs 12:15** → **Proverbs 16:25** [[Proverbs ch: 16.md]] (votes: 9)
+- **Proverbs 12:15** → **Proverbs 26:12** [[Proverbs ch: 26.md]] (votes: 10)
+- **Proverbs 12:15** → **Proverbs 9:9** [[Proverbs ch: 9.md]] (votes: 8)
+- **Proverbs 12:15** → **Proverbs 26:16** [[Proverbs ch: 26.md]] (votes: 4)
+- **Proverbs 12:15** → **Luke 18:11** [[Luke ch: 18.md]] (votes: 4)
+- **Proverbs 12:15** → **Proverbs 1:5** [[Proverbs ch: 1.md]] (votes: 8)
+- **Proverbs 12:15** → **Proverbs 30:12** [[Proverbs ch: 30.md]] (votes: 5)
+- **Proverbs 12:15** → **Proverbs 16:2** [[Proverbs ch: 16.md]] (votes: 9)
+- **Proverbs 12:15** → **Proverbs 3:7** [[Proverbs ch: 3.md]] (votes: 15)
+- **Proverbs 12:15** → **Proverbs 14:16** [[Proverbs ch: 14.md]] (votes: 10)
+- **Proverbs 12:15** → **Galatians 6:3** [[Galatians ch: 6.md]] (votes: 8)
+- **Proverbs 12:15** → **Proverbs 14:12** [[Proverbs ch: 14.md]] (votes: 9)
+- **Proverbs 12:15** → **Proverbs 19:20** [[Proverbs ch: 19.md]] (votes: 10)
+- **Proverbs 12:15** → **Proverbs 21:2** [[Proverbs ch: 21.md]] (votes: 6)
+- **Proverbs 12:15** → **Ecclesiastes 4:13** [[Ecclesiastes ch: 4.md]] (votes: 4)
+- **Proverbs 12:15** → **Proverbs 28:11** [[Proverbs ch: 28.md]] (votes: 5)
+- **Proverbs 12:16** → **Proverbs 10:12** [[Proverbs ch: 10.md]] (votes: 8)
+- **Proverbs 12:16** → **James 1:19** [[James ch: 1.md]] (votes: 10)
+- **Proverbs 12:16** → **Proverbs 17:9** [[Proverbs ch: 17.md]] (votes: 7)
+- **Proverbs 12:16** → **Proverbs 14:33** [[Proverbs ch: 14.md]] (votes: 5)
+- **Proverbs 12:16** → **Proverbs 25:28** [[Proverbs ch: 25.md]] (votes: 7)
+- **Proverbs 12:16** → **Proverbs 16:22** [[Proverbs ch: 16.md]] (votes: 5)
+- **Proverbs 12:16** → **Proverbs 29:11** [[Proverbs ch: 29.md]] (votes: 14)
+- **Proverbs 12:17** → **Proverbs 14:5** [[Proverbs ch: 14.md]] (votes: 6)
+- **Proverbs 12:17** → **Matthew 15:19** [[Matthew ch: 15.md]] (votes: 3)
+- **Proverbs 12:17** → **Proverbs 6:19** [[Proverbs ch: 6.md]] (votes: 4)
+- **Proverbs 12:17** → **Proverbs 21:28** [[Proverbs ch: 21.md]] (votes: 3)
+- **Proverbs 12:17** → **Acts 6:13** [[Acts ch: 6.md]] (votes: 2)
+- **Proverbs 12:17** → **Proverbs 19:28** [[Proverbs ch: 19.md]] (votes: 3)
+- **Proverbs 12:17** → **Proverbs 24:28** [[Proverbs ch: 24.md]] (votes: 4)
+- **Proverbs 12:17** → **1 Peter 3:16** [[1 Peter ch: 3.md]] (votes: 2)
+- **Proverbs 12:17** → **Matthew 26:59** [[Matthew ch: 26.md]] (votes: 2)
+- **Proverbs 12:17** → **Proverbs 19:5** [[Proverbs ch: 19.md]] (votes: 3)
+- **Proverbs 12:17** → **Proverbs 14:25** [[Proverbs ch: 14.md]] (votes: 6)
+- **Proverbs 12:18** → **Psalms 64:3** [[Psalms ch: 64.md]] (votes: 4)
+- **Proverbs 12:18** → **Proverbs 13:17** [[Proverbs ch: 13.md]] (votes: 5)
+- **Proverbs 12:18** → **Proverbs 4:22** [[Proverbs ch: 4.md]] (votes: 5)
+- **Proverbs 12:18** → **Proverbs 16:24** [[Proverbs ch: 16.md]] (votes: 19)
+- **Proverbs 12:18** → **Proverbs 15:7** [[Proverbs ch: 15.md]] (votes: 5)
+- **Proverbs 12:18** → **Revelation 22:2** [[Revelation ch: 22.md]] (votes: 3)
+- **Proverbs 12:18** → **Psalms 57:4** [[Psalms ch: 57.md]] (votes: 8)
+- **Proverbs 12:18** → **Psalms 52:2** [[Psalms ch: 52.md]] (votes: 7)
+- **Proverbs 12:18** → **Psalms 59:7** [[Psalms ch: 59.md]] (votes: 3)
+- **Proverbs 12:18** → **Revelation 1:16** [[Revelation ch: 1.md]] (votes: 3)
+- **Proverbs 12:18** → **Proverbs 25:18** [[Proverbs ch: 25.md]] (votes: 5)
+- **Proverbs 12:18** → **Daniel 11:33** [[Daniel ch: 11.md]] (votes: 5)
+- **Proverbs 12:18** → **Proverbs 15:4** [[Proverbs ch: 15.md]] (votes: 16)
+- **Proverbs 12:19** → **Job 20:5** [[Job ch: 20.md]] (votes: 6)
+- **Proverbs 12:19** → **Matthew 24:35** [[Matthew ch: 24.md]] (votes: 4)
+- **Proverbs 12:19** → **Proverbs 19:9** [[Proverbs ch: 19.md]] (votes: 10)
+- **Proverbs 12:20** → **Hebrews 12:14** [[Hebrews ch: 12.md]] (votes: 3)
+- **Proverbs 12:20** → **Romans 1:29** [[Romans ch: 1.md]] (votes: 2)
+- **Proverbs 12:20** → **Zechariah 6:13** [[Zechariah ch: 6.md]] (votes: 3)
+- **Proverbs 12:20** → **Matthew 5:9** [[Matthew ch: 5.md]] (votes: 6)
+- **Proverbs 12:20** → **Proverbs 12:12** [[Proverbs ch: 12.md]] (votes: 3)
+- **Proverbs 12:20** → **Jeremiah 17:16** [[Jeremiah ch: 17.md]] (votes: 2)
+- **Proverbs 12:21** → **2 Corinthians 4:17** [[2 Corinthians ch: 4.md]] (votes: 0)
+- **Proverbs 12:21** → **Romans 8:28** [[Romans ch: 8.md]] (votes: 5)
+- **Proverbs 12:21** → **Proverbs 14:14** [[Proverbs ch: 14.md]] (votes: 3)
+- **Proverbs 12:21** → **Habakkuk 2:16** [[Habakkuk ch: 2.md]] (votes: 3)
+- **Proverbs 12:21** → **Proverbs 1:31** [[Proverbs ch: 1.md]] (votes: 4)
+- **Proverbs 12:21** → **Revelation 18:6** [[Revelation ch: 18.md]] (votes: 3)
+- **Proverbs 12:21** → **Psalms 91:10** [[Psalms ch: 91.md]] (votes: 6)
+- **Proverbs 12:21** → **1 Peter 3:13** [[1 Peter ch: 3.md]] (votes: 8)
+- **Proverbs 12:22** → **Ezekiel 13:19** [[Ezekiel ch: 13.md]] (votes: 3)
+- **Proverbs 12:22** → **Proverbs 15:8** [[Proverbs ch: 15.md]] (votes: 4)
+- **Proverbs 12:22** → **Proverbs 11:20** [[Proverbs ch: 11.md]] (votes: 12)
+- **Proverbs 12:22** → **Revelation 21:8** [[Revelation ch: 21.md]] (votes: 1)
+- **Proverbs 12:22** → **Isaiah 9:15** [[Isaiah ch: 9.md]] (votes: 6)
+- **Proverbs 12:22** → **Psalms 5:6** [[Psalms ch: 5.md]] (votes: 13)
+- **Proverbs 12:22** → **Proverbs 11:1** [[Proverbs ch: 11.md]] (votes: 6)
+- **Proverbs 12:22** → **Revelation 22:15** [[Revelation ch: 22.md]] (votes: 12)
+- **Proverbs 12:22** → **Ezekiel 13:22** [[Ezekiel ch: 13.md]] (votes: 4)
+- **Proverbs 12:22** → **Jeremiah 9:24** [[Jeremiah ch: 9.md]] (votes: 8)
+- **Proverbs 12:23** → **Ecclesiastes 10:3** [[Ecclesiastes ch: 10.md]] (votes: 1)
+- **Proverbs 12:23** → **Proverbs 10:19** [[Proverbs ch: 10.md]] (votes: 4)
+- **Proverbs 12:23** → **Proverbs 13:16** [[Proverbs ch: 13.md]] (votes: 8)
+- **Proverbs 12:23** → **Proverbs 11:13** [[Proverbs ch: 11.md]] (votes: 5)
+- **Proverbs 12:23** → **Proverbs 15:2** [[Proverbs ch: 15.md]] (votes: 4)
+- **Proverbs 12:23** → **Proverbs 10:14** [[Proverbs ch: 10.md]] (votes: 5)
+- **Proverbs 12:24** → **Proverbs 22:29** [[Proverbs ch: 22.md]] (votes: 3)
+- **Proverbs 12:24** → **Proverbs 17:2** [[Proverbs ch: 17.md]] (votes: 3)
+- **Proverbs 12:24** → **1 Kings 11:28** [[1 Kings ch: 11.md]] (votes: 3)
+- **Proverbs 12:24** → **Proverbs 19:15** [[Proverbs ch: 19.md]] (votes: 3)
+- **Proverbs 12:24** → **Proverbs 22:13** [[Proverbs ch: 22.md]] (votes: 3)
+- **Proverbs 12:24** → **Proverbs 13:4** [[Proverbs ch: 13.md]] (votes: 4)
+- **Proverbs 12:24** → **Proverbs 12:27** [[Proverbs ch: 12.md]] (votes: 9)
+- **Proverbs 12:24** → **1 Kings 12:20** [[1 Kings ch: 12.md]] (votes: 0)
+- **Proverbs 12:24** → **Genesis 49:15** [[Genesis ch: 49.md]] (votes: 3)
+- **Proverbs 12:24** → **Proverbs 10:4** [[Proverbs ch: 10.md]] (votes: 6)
+- **Proverbs 12:24** → **1 Kings 9:21** [[1 Kings ch: 9.md]] (votes: 2)
+- **Proverbs 12:25** → **Proverbs 15:23** [[Proverbs ch: 15.md]] (votes: 20)
+- **Proverbs 12:25** → **Proverbs 18:14** [[Proverbs ch: 18.md]] (votes: 9)
+- **Proverbs 12:25** → **Proverbs 27:9** [[Proverbs ch: 27.md]] (votes: 13)
+- **Proverbs 12:25** → **Proverbs 16:24** [[Proverbs ch: 16.md]] (votes: 27)
+- **Proverbs 12:25** → **Proverbs 14:10** [[Proverbs ch: 14.md]] (votes: 5)
+- **Proverbs 12:25** → **Proverbs 15:13** [[Proverbs ch: 15.md]] (votes: 25)
+- **Proverbs 12:25** → **Psalms 38:6** [[Psalms ch: 38.md]] (votes: 7)
+- **Proverbs 12:25** → **Zechariah 1:13** [[Zechariah ch: 1.md]] (votes: 14)
+- **Proverbs 12:25** → **Isaiah 50:4** [[Isaiah ch: 50.md]] (votes: 21)
+- **Proverbs 12:25** → **Proverbs 25:11** [[Proverbs ch: 25.md]] (votes: 7)
+- **Proverbs 12:25** → **Proverbs 15:15** [[Proverbs ch: 15.md]] (votes: 5)
+- **Proverbs 12:25** → **Psalms 42:11** [[Psalms ch: 42.md]] (votes: 13)
+- **Proverbs 12:25** → **Proverbs 17:22** [[Proverbs ch: 17.md]] (votes: 24)
+- **Proverbs 12:25** → **Proverbs 12:18** [[Proverbs ch: 12.md]] (votes: 14)
+- **Proverbs 12:26** → **1 John 2:26** [[1 John ch: 2.md]] (votes: 4)
+- **Proverbs 12:26** → **Proverbs 12:13** [[Proverbs ch: 12.md]] (votes: 3)
+- **Proverbs 12:26** → **Revelation 13:14** [[Revelation ch: 13.md]] (votes: 1)
+- **Proverbs 12:26** → **Proverbs 17:27** [[Proverbs ch: 17.md]] (votes: 4)
+- **Proverbs 12:26** → **Revelation 12:9** [[Revelation ch: 12.md]] (votes: 2)
+- **Proverbs 12:26** → **Psalms 16:3** [[Psalms ch: 16.md]] (votes: 0)
+- **Proverbs 12:27** → **Proverbs 23:2** [[Proverbs ch: 23.md]] (votes: 0)
+- **Proverbs 12:27** → **Psalms 37:16** [[Psalms ch: 37.md]] (votes: 1)
+- **Proverbs 12:27** → **Proverbs 16:8** [[Proverbs ch: 16.md]] (votes: 0)
+- **Proverbs 12:27** → **Proverbs 26:15** [[Proverbs ch: 26.md]] (votes: 2)
+- **Proverbs 12:27** → **Proverbs 15:16** [[Proverbs ch: 15.md]] (votes: 1)
+- **Proverbs 12:27** → **Proverbs 13:4** [[Proverbs ch: 13.md]] (votes: 4)
+- **Proverbs 12:28** → **Deuteronomy 30:15** [[Deuteronomy ch: 30.md]] (votes: 3)
+- **Proverbs 12:28** → **1 John 3:7** [[1 John ch: 3.md]] (votes: 3)
+- **Proverbs 12:28** → **Proverbs 8:35** [[Proverbs ch: 8.md]] (votes: 3)
+- **Proverbs 12:28** → **3 John 1:11** [[3 John ch: 1.md]] (votes: 10)
+- **Proverbs 12:28** → **Proverbs 11:19** [[Proverbs ch: 11.md]] (votes: 6)
+- **Proverbs 12:28** → **Proverbs 9:11** [[Proverbs ch: 9.md]] (votes: 1)
+- **Proverbs 12:28** → **Romans 5:21** [[Romans ch: 5.md]] (votes: 7)
+- **Proverbs 12:28** → **Ezekiel 18:9** [[Ezekiel ch: 18.md]] (votes: 3)
+- **Proverbs 12:28** → **Proverbs 10:16** [[Proverbs ch: 10.md]] (votes: 3)
+- **Proverbs 12:28** → **1 John 2:29** [[1 John ch: 2.md]] (votes: 3)

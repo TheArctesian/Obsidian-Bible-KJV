@@ -1,0 +1,107 @@
+# Psalms 110
+
+**1** ¶ A Psalm of David. The LORD said unto my Lord, Sit thou at my right hand, until I make thine enemies thy footstool.
+
+**2** The LORD shall send the rod of thy strength out of Zion: rule thou in the midst of thine enemies.
+
+**3** Thy people [shall be] willing in the day of thy power, in the beauties of holiness from the womb of the morning: thou hast the dew of thy youth.
+
+**4** The LORD hath sworn, and will not repent, Thou [art] a priest for ever after the order of Melchizedek.
+
+**5** ¶ The Lord at thy right hand shall strike through kings in the day of his wrath.
+
+**6** He shall judge among the heathen, he shall fill [the places] with the dead bodies; he shall wound the heads over many countries.
+
+**7** He shall drink of the brook in the way: therefore shall he lift up the head.
+
+---
+
+## Cross-References
+
+- **Psalms 110:1** → **Psalms 8:1** [[Psalms ch: 8.md]] (votes: -8)
+- **Psalms 110:1** → **Luke 22:41** [[Luke ch: 22.md]] (votes: -27)
+- **Psalms 110:1** → **Psalms 8:6** [[Psalms ch: 8.md]] (votes: 32)
+- **Psalms 110:1** → **1 Peter 3:22** [[1 Peter ch: 3.md]] (votes: 34)
+- **Psalms 110:1** → **Hebrews 12:2** [[Hebrews ch: 12.md]] (votes: 38)
+- **Psalms 110:1** → **Hebrews 8:1** [[Hebrews ch: 8.md]] (votes: 29)
+- **Psalms 110:1** → **Colossians 3:1** [[Colossians ch: 3.md]] (votes: 26)
+- **Psalms 110:1** → **1 Corinthians 15:25** [[1 Corinthians ch: 15.md]] (votes: 60)
+- **Psalms 110:1** → **Hebrews 1:3** [[Hebrews ch: 1.md]] (votes: 47)
+- **Psalms 110:1** → **Mark 16:19** [[Mark ch: 16.md]] (votes: 22)
+- **Psalms 110:1** → **Matthew 26:64** [[Matthew ch: 26.md]] (votes: 38)
+- **Psalms 110:1** → **Hebrews 1:13** [[Hebrews ch: 1.md]] (votes: 51)
+- **Psalms 110:2** → **1 Peter 1:12** [[1 Peter ch: 1.md]] (votes: 2)
+- **Psalms 110:2** → **Psalms 72:8** [[Psalms ch: 72.md]] (votes: 2)
+- **Psalms 110:2** → **Romans 1:16** [[Romans ch: 1.md]] (votes: 2)
+- **Psalms 110:2** → **Micah 7:14** [[Micah ch: 7.md]] (votes: 1)
+- **Psalms 110:2** → **Exodus 8:5** [[Exodus ch: 8.md]] (votes: 2)
+- **Psalms 110:2** → **Micah 4:2** [[Micah ch: 4.md]] (votes: 2)
+- **Psalms 110:2** → **Ezekiel 19:14** [[Ezekiel ch: 19.md]] (votes: 2)
+- **Psalms 110:2** → **1 Thessalonians 2:13** [[1 Thessalonians ch: 2.md]] (votes: 2)
+- **Psalms 110:2** → **Jeremiah 48:17** [[Jeremiah ch: 48.md]] (votes: 5)
+- **Psalms 110:2** → **Isaiah 2:3** [[Isaiah ch: 2.md]] (votes: 2)
+- **Psalms 110:2** → **Exodus 7:19** [[Exodus ch: 7.md]] (votes: 0)
+- **Psalms 110:2** → **Ezekiel 47:1** [[Ezekiel ch: 47.md]] (votes: 2)
+- **Psalms 110:3** → **Acts 2:41** [[Acts ch: 2.md]] (votes: 5)
+- **Psalms 110:3** → **Revelation 7:9** [[Revelation ch: 7.md]] (votes: 7)
+- **Psalms 110:3** → **Acts 1:8** [[Acts ch: 1.md]] (votes: 5)
+- **Psalms 110:3** → **Acts 2:33** [[Acts ch: 2.md]] (votes: 5)
+- **Psalms 110:3** → **Titus 2:14** [[Titus ch: 2.md]] (votes: 10)
+- **Psalms 110:3** → **Nehemiah 11:2** [[Nehemiah ch: 11.md]] (votes: 4)
+- **Psalms 110:3** → **Ephesians 1:4** [[Ephesians ch: 1.md]] (votes: 9)
+- **Psalms 110:3** → **1 Chronicles 16:29** [[1 Chronicles ch: 16.md]] (votes: 5)
+- **Psalms 110:3** → **Hebrews 13:21** [[Hebrews ch: 13.md]] (votes: 11)
+- **Psalms 110:3** → **Ezekiel 43:12** [[Ezekiel ch: 43.md]] (votes: 3)
+- **Psalms 110:3** → **2 Corinthians 8:16** [[2 Corinthians ch: 8.md]] (votes: 6)
+- **Psalms 110:3** → **Acts 19:20** [[Acts ch: 19.md]] (votes: 4)
+- **Psalms 110:3** → **Acts 4:4** [[Acts ch: 4.md]] (votes: 4)
+- **Psalms 110:3** → **Acts 21:20** [[Acts ch: 21.md]] (votes: 6)
+- **Psalms 110:3** → **2 Corinthians 13:4** [[2 Corinthians ch: 13.md]] (votes: 6)
+- **Psalms 110:3** → **1 Thessalonians 4:7** [[1 Thessalonians ch: 4.md]] (votes: 10)
+- **Psalms 110:3** → **Psalms 96:9** [[Psalms ch: 96.md]] (votes: 6)
+- **Psalms 110:3** → **2 Corinthians 8:12** [[2 Corinthians ch: 8.md]] (votes: 6)
+- **Psalms 110:3** → **Judges 5:2** [[Judges ch: 5.md]] (votes: 13)
+- **Psalms 110:3** → **Philippians 2:13** [[Philippians ch: 2.md]] (votes: 5)
+- **Psalms 110:4** → **Numbers 23:19** [[Numbers ch: 23.md]] (votes: 13)
+- **Psalms 110:4** → **Psalms 132:11** [[Psalms ch: 132.md]] (votes: 6)
+- **Psalms 110:4** → **Hebrews 7:17** [[Hebrews ch: 7.md]] (votes: 25)
+- **Psalms 110:4** → **Hebrews 5:6** [[Hebrews ch: 5.md]] (votes: 24)
+- **Psalms 110:4** → **Zechariah 6:13** [[Zechariah ch: 6.md]] (votes: 9)
+- **Psalms 110:4** → **Genesis 14:18** [[Genesis ch: 14.md]] (votes: 15)
+- **Psalms 110:4** → **Hebrews 7:21** [[Hebrews ch: 7.md]] (votes: 22)
+- **Psalms 110:4** → **Hebrews 7:11** [[Hebrews ch: 7.md]] (votes: 14)
+- **Psalms 110:4** → **Revelation 1:6** [[Revelation ch: 1.md]] (votes: 9)
+- **Psalms 110:4** → **Hebrews 7:28** [[Hebrews ch: 7.md]] (votes: 14)
+- **Psalms 110:5** → **Romans 2:5** [[Romans ch: 2.md]] (votes: 7)
+- **Psalms 110:5** → **Psalms 68:30** [[Psalms ch: 68.md]] (votes: 2)
+- **Psalms 110:5** → **Psalms 68:14** [[Psalms ch: 68.md]] (votes: 4)
+- **Psalms 110:5** → **Psalms 110:1** [[Psalms ch: 110.md]] (votes: 2)
+- **Psalms 110:5** → **Psalms 16:8** [[Psalms ch: 16.md]] (votes: 6)
+- **Psalms 110:5** → **Mark 16:19** [[Mark ch: 16.md]] (votes: 3)
+- **Psalms 110:5** → **Revelation 11:18** [[Revelation ch: 11.md]] (votes: 3)
+- **Psalms 110:6** → **Isaiah 42:4** [[Isaiah ch: 42.md]] (votes: 3)
+- **Psalms 110:6** → **Revelation 19:11** [[Revelation ch: 19.md]] (votes: 4)
+- **Psalms 110:6** → **Isaiah 42:1** [[Isaiah ch: 42.md]] (votes: 2)
+- **Psalms 110:6** → **Isaiah 2:4** [[Isaiah ch: 2.md]] (votes: 4)
+- **Psalms 110:6** → **Habakkuk 3:13** [[Habakkuk ch: 3.md]] (votes: 2)
+- **Psalms 110:6** → **Isaiah 51:5** [[Isaiah ch: 51.md]] (votes: 2)
+- **Psalms 110:6** → **1 Samuel 2:10** [[1 Samuel ch: 2.md]] (votes: 2)
+- **Psalms 110:6** → **Isaiah 11:3** [[Isaiah ch: 11.md]] (votes: 2)
+- **Psalms 110:6** → **John 5:22** [[John ch: 5.md]] (votes: 4)
+- **Psalms 110:6** → **Psalms 68:21** [[Psalms ch: 68.md]] (votes: 6)
+- **Psalms 110:6** → **Ezekiel 39:4** [[Ezekiel ch: 39.md]] (votes: 2)
+- **Psalms 110:6** → **Micah 4:3** [[Micah ch: 4.md]] (votes: 4)
+- **Psalms 110:6** → **Genesis 3:15** [[Genesis ch: 3.md]] (votes: 2)
+- **Psalms 110:6** → **Isaiah 66:24** [[Isaiah ch: 66.md]] (votes: 2)
+- **Psalms 110:6** → **Revelation 14:20** [[Revelation ch: 14.md]] (votes: 3)
+- **Psalms 110:7** → **Luke 24:26** [[Luke ch: 24.md]] (votes: 1)
+- **Psalms 110:7** → **Jeremiah 23:15** [[Jeremiah ch: 23.md]] (votes: 1)
+- **Psalms 110:7** → **John 18:11** [[John ch: 18.md]] (votes: 2)
+- **Psalms 110:7** → **Psalms 3:3** [[Psalms ch: 3.md]] (votes: 1)
+- **Psalms 110:7** → **1 Peter 1:11** [[1 Peter ch: 1.md]] (votes: 2)
+- **Psalms 110:7** → **Matthew 26:42** [[Matthew ch: 26.md]] (votes: 3)
+- **Psalms 110:7** → **Psalms 27:6** [[Psalms ch: 27.md]] (votes: 6)
+- **Psalms 110:7** → **Jeremiah 52:31** [[Jeremiah ch: 52.md]] (votes: 1)
+- **Psalms 110:7** → **Job 21:20** [[Job ch: 21.md]] (votes: 0)
+- **Psalms 110:7** → **Psalms 102:9** [[Psalms ch: 102.md]] (votes: -1)
+- **Psalms 110:7** → **Matthew 20:22** [[Matthew ch: 20.md]] (votes: 1)

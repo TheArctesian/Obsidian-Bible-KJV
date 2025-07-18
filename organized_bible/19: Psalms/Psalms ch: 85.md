@@ -1,0 +1,168 @@
+# Psalms 85
+
+**1** ¶ To the chief Musician, A Psalm for the sons of Korah. LORD, thou hast been favourable unto thy land: thou hast brought back the captivity of Jacob.
+
+**2** Thou hast forgiven the iniquity of thy people, thou hast covered all their sin. Selah.
+
+**3** Thou hast taken away all thy wrath: thou hast turned [thyself] from the fierceness of thine anger.
+
+**4** Turn us, O God of our salvation, and cause thine anger toward us to cease.
+
+**5** Wilt thou be angry with us for ever? wilt thou draw out thine anger to all generations?
+
+**6** Wilt thou not revive us again: that thy people may rejoice in thee?
+
+**7** Shew us thy mercy, O LORD, and grant us thy salvation.
+
+**8** ¶ I will hear what God the LORD will speak: for he will speak peace unto his people, and to his saints: but let them not turn again to folly.
+
+**9** Surely his salvation [is] nigh them that fear him; that glory may dwell in our land.
+
+**10** Mercy and truth are met together; righteousness and peace have kissed [each other].
+
+**11** Truth shall spring out of the earth; and righteousness shall look down from heaven.
+
+**12** Yea, the LORD shall give [that which is] good; and our land shall yield her increase.
+
+**13** Righteousness shall go before him; and shall set [us] in the way of his steps.
+
+---
+
+## Cross-References
+
+- **Psalms 85:1** → **Psalms 77:7** [[Psalms ch: 77.md]] (votes: 7)
+- **Psalms 85:1** → **Joel 2:18** [[Joel ch: 2.md]] (votes: 6)
+- **Psalms 85:1** → **Psalms 42:1** [[Psalms ch: 42.md]] (votes: 6)
+- **Psalms 85:1** → **Jeremiah 30:18** [[Jeremiah ch: 30.md]] (votes: 10)
+- **Psalms 85:1** → **Joel 3:1** [[Joel ch: 3.md]] (votes: 5)
+- **Psalms 85:1** → **Zechariah 1:16** [[Zechariah ch: 1.md]] (votes: 5)
+- **Psalms 85:1** → **Jeremiah 31:23** [[Jeremiah ch: 31.md]] (votes: 4)
+- **Psalms 85:1** → **Psalms 14:7** [[Psalms ch: 14.md]] (votes: 11)
+- **Psalms 85:1** → **Ezekiel 39:25** [[Ezekiel ch: 39.md]] (votes: 7)
+- **Psalms 85:1** → **Leviticus 26:42** [[Leviticus ch: 26.md]] (votes: 5)
+- **Psalms 85:2** → **Micah 7:18** [[Micah ch: 7.md]] (votes: 9)
+- **Psalms 85:2** → **Numbers 14:19** [[Numbers ch: 14.md]] (votes: 6)
+- **Psalms 85:2** → **Psalms 78:38** [[Psalms ch: 78.md]] (votes: 4)
+- **Psalms 85:2** → **Acts 13:39** [[Acts ch: 13.md]] (votes: 5)
+- **Psalms 85:2** → **Psalms 32:1** [[Psalms ch: 32.md]] (votes: 9)
+- **Psalms 85:2** → **Jeremiah 50:20** [[Jeremiah ch: 50.md]] (votes: 5)
+- **Psalms 85:2** → **Colossians 2:13** [[Colossians ch: 2.md]] (votes: 9)
+- **Psalms 85:3** → **Isaiah 12:1** [[Isaiah ch: 12.md]] (votes: 4)
+- **Psalms 85:3** → **Deuteronomy 13:17** [[Deuteronomy ch: 13.md]] (votes: 6)
+- **Psalms 85:3** → **Jonah 3:9** [[Jonah ch: 3.md]] (votes: 4)
+- **Psalms 85:3** → **Psalms 106:23** [[Psalms ch: 106.md]] (votes: 6)
+- **Psalms 85:3** → **Isaiah 6:7** [[Isaiah ch: 6.md]] (votes: 3)
+- **Psalms 85:3** → **Psalms 78:38** [[Psalms ch: 78.md]] (votes: 3)
+- **Psalms 85:3** → **Exodus 32:22** [[Exodus ch: 32.md]] (votes: 2)
+- **Psalms 85:3** → **John 1:29** [[John ch: 1.md]] (votes: 2)
+- **Psalms 85:4** → **Psalms 80:7** [[Psalms ch: 80.md]] (votes: 5)
+- **Psalms 85:4** → **John 4:22** [[John ch: 4.md]] (votes: 1)
+- **Psalms 85:4** → **Psalms 78:38** [[Psalms ch: 78.md]] (votes: 1)
+- **Psalms 85:4** → **Lamentations 5:21** [[Lamentations ch: 5.md]] (votes: 4)
+- **Psalms 85:4** → **Micah 7:7** [[Micah ch: 7.md]] (votes: 4)
+- **Psalms 85:4** → **Psalms 80:19** [[Psalms ch: 80.md]] (votes: 3)
+- **Psalms 85:4** → **Psalms 80:3** [[Psalms ch: 80.md]] (votes: 7)
+- **Psalms 85:4** → **Malachi 4:6** [[Malachi ch: 4.md]] (votes: 3)
+- **Psalms 85:4** → **Psalms 27:1** [[Psalms ch: 27.md]] (votes: 3)
+- **Psalms 85:4** → **Daniel 9:16** [[Daniel ch: 9.md]] (votes: 2)
+- **Psalms 85:4** → **Isaiah 10:25** [[Isaiah ch: 10.md]] (votes: 1)
+- **Psalms 85:4** → **Psalms 25:2** [[Psalms ch: 25.md]] (votes: 3)
+- **Psalms 85:4** → **Jeremiah 31:18** [[Jeremiah ch: 31.md]] (votes: 2)
+- **Psalms 85:5** → **Psalms 80:4** [[Psalms ch: 80.md]] (votes: 4)
+- **Psalms 85:5** → **Micah 7:18** [[Micah ch: 7.md]] (votes: 2)
+- **Psalms 85:5** → **Luke 21:24** [[Luke ch: 21.md]] (votes: 2)
+- **Psalms 85:5** → **Psalms 77:9** [[Psalms ch: 77.md]] (votes: 2)
+- **Psalms 85:5** → **Psalms 79:5** [[Psalms ch: 79.md]] (votes: 5)
+- **Psalms 85:5** → **Psalms 89:46** [[Psalms ch: 89.md]] (votes: 2)
+- **Psalms 85:5** → **Psalms 74:1** [[Psalms ch: 74.md]] (votes: 3)
+- **Psalms 85:6** → **Psalms 149:2** [[Psalms ch: 149.md]] (votes: 5)
+- **Psalms 85:6** → **Psalms 71:20** [[Psalms ch: 71.md]] (votes: 12)
+- **Psalms 85:6** → **Psalms 138:7** [[Psalms ch: 138.md]] (votes: 9)
+- **Psalms 85:6** → **Habakkuk 3:2** [[Habakkuk ch: 3.md]] (votes: 19)
+- **Psalms 85:6** → **Hosea 6:2** [[Hosea ch: 6.md]] (votes: 13)
+- **Psalms 85:6** → **Psalms 80:18** [[Psalms ch: 80.md]] (votes: 18)
+- **Psalms 85:6** → **Psalms 90:14** [[Psalms ch: 90.md]] (votes: 15)
+- **Psalms 85:6** → **Psalms 53:6** [[Psalms ch: 53.md]] (votes: 10)
+- **Psalms 85:6** → **Isaiah 57:15** [[Isaiah ch: 57.md]] (votes: 16)
+- **Psalms 85:6** → **Jeremiah 33:11** [[Jeremiah ch: 33.md]] (votes: 4)
+- **Psalms 85:7** → **Psalms 50:23** [[Psalms ch: 50.md]] (votes: 4)
+- **Psalms 85:7** → **Psalms 91:16** [[Psalms ch: 91.md]] (votes: 5)
+- **Psalms 85:7** → **Jeremiah 42:12** [[Jeremiah ch: 42.md]] (votes: 3)
+- **Psalms 85:8** → **Isaiah 57:19** [[Isaiah ch: 57.md]] (votes: 4)
+- **Psalms 85:8** → **Proverbs 25:11** [[Proverbs ch: 25.md]] (votes: 4)
+- **Psalms 85:8** → **Ephesians 2:17** [[Ephesians ch: 2.md]] (votes: 5)
+- **Psalms 85:8** → **Haggai 2:9** [[Haggai ch: 2.md]] (votes: 4)
+- **Psalms 85:8** → **Habakkuk 2:1** [[Habakkuk ch: 2.md]] (votes: 8)
+- **Psalms 85:8** → **Proverbs 27:22** [[Proverbs ch: 27.md]] (votes: 2)
+- **Psalms 85:8** → **Psalms 130:4** [[Psalms ch: 130.md]] (votes: 6)
+- **Psalms 85:8** → **2 Thessalonians 3:16** [[2 Thessalonians ch: 3.md]] (votes: 5)
+- **Psalms 85:8** → **Galatians 4:9** [[Galatians ch: 4.md]] (votes: 5)
+- **Psalms 85:8** → **Acts 10:36** [[Acts ch: 10.md]] (votes: 4)
+- **Psalms 85:8** → **Acts 3:26** [[Acts ch: 3.md]] (votes: 4)
+- **Psalms 85:8** → **Genesis 34:7** [[Genesis ch: 34.md]] (votes: 6)
+- **Psalms 85:8** → **Hebrews 12:25** [[Hebrews ch: 12.md]] (votes: 5)
+- **Psalms 85:8** → **1 Samuel 25:25** [[1 Samuel ch: 25.md]] (votes: 1)
+- **Psalms 85:8** → **John 20:19** [[John ch: 20.md]] (votes: 4)
+- **Psalms 85:8** → **John 14:27** [[John ch: 14.md]] (votes: 8)
+- **Psalms 85:8** → **John 8:11** [[John ch: 8.md]] (votes: 4)
+- **Psalms 85:8** → **John 5:14** [[John ch: 5.md]] (votes: 4)
+- **Psalms 85:8** → **Revelation 3:19** [[Revelation ch: 3.md]] (votes: 11)
+- **Psalms 85:8** → **2 Timothy 2:19** [[2 Timothy ch: 2.md]] (votes: 7)
+- **Psalms 85:8** → **John 20:26** [[John ch: 20.md]] (votes: 4)
+- **Psalms 85:8** → **Zechariah 9:10** [[Zechariah ch: 9.md]] (votes: 9)
+- **Psalms 85:8** → **Psalms 29:11** [[Psalms ch: 29.md]] (votes: 12)
+- **Psalms 85:8** → **Psalms 50:5** [[Psalms ch: 50.md]] (votes: 4)
+- **Psalms 85:9** → **Zechariah 2:8** [[Zechariah ch: 2.md]] (votes: 9)
+- **Psalms 85:9** → **Isaiah 46:13** [[Isaiah ch: 46.md]] (votes: 14)
+- **Psalms 85:9** → **Psalms 50:23** [[Psalms ch: 50.md]] (votes: 7)
+- **Psalms 85:9** → **Isaiah 4:5** [[Isaiah ch: 4.md]] (votes: 6)
+- **Psalms 85:9** → **Acts 13:16** [[Acts ch: 13.md]] (votes: 6)
+- **Psalms 85:9** → **Luke 2:32** [[Luke ch: 2.md]] (votes: 8)
+- **Psalms 85:9** → **Zechariah 2:5** [[Zechariah ch: 2.md]] (votes: 13)
+- **Psalms 85:9** → **John 1:14** [[John ch: 1.md]] (votes: 6)
+- **Psalms 85:9** → **Psalms 119:155** [[Psalms ch: 119.md]] (votes: 6)
+- **Psalms 85:9** → **Ezekiel 26:20** [[Ezekiel ch: 26.md]] (votes: 7)
+- **Psalms 85:9** → **John 7:17** [[John ch: 7.md]] (votes: 9)
+- **Psalms 85:10** → **Luke 2:14** [[Luke ch: 2.md]] (votes: 3)
+- **Psalms 85:10** → **Micah 7:20** [[Micah ch: 7.md]] (votes: 6)
+- **Psalms 85:10** → **Romans 5:21** [[Romans ch: 5.md]] (votes: 7)
+- **Psalms 85:10** → **Psalms 89:14** [[Psalms ch: 89.md]] (votes: 11)
+- **Psalms 85:10** → **Proverbs 3:3** [[Proverbs ch: 3.md]] (votes: 13)
+- **Psalms 85:10** → **John 1:17** [[John ch: 1.md]] (votes: 10)
+- **Psalms 85:10** → **Psalms 72:3** [[Psalms ch: 72.md]] (votes: 7)
+- **Psalms 85:10** → **Romans 5:1** [[Romans ch: 5.md]] (votes: 5)
+- **Psalms 85:10** → **Psalms 100:5** [[Psalms ch: 100.md]] (votes: 10)
+- **Psalms 85:10** → **Isaiah 45:24** [[Isaiah ch: 45.md]] (votes: 6)
+- **Psalms 85:10** → **Hebrews 7:2** [[Hebrews ch: 7.md]] (votes: 5)
+- **Psalms 85:11** → **2 Corinthians 5:21** [[2 Corinthians ch: 5.md]] (votes: 4)
+- **Psalms 85:11** → **Isaiah 42:21** [[Isaiah ch: 42.md]] (votes: 5)
+- **Psalms 85:11** → **Matthew 17:5** [[Matthew ch: 17.md]] (votes: 5)
+- **Psalms 85:11** → **Isaiah 53:2** [[Isaiah ch: 53.md]] (votes: 4)
+- **Psalms 85:11** → **John 14:6** [[John ch: 14.md]] (votes: 11)
+- **Psalms 85:11** → **Isaiah 4:2** [[Isaiah ch: 4.md]] (votes: 4)
+- **Psalms 85:11** → **Ephesians 1:6** [[Ephesians ch: 1.md]] (votes: 4)
+- **Psalms 85:11** → **Isaiah 45:8** [[Isaiah ch: 45.md]] (votes: 11)
+- **Psalms 85:11** → **Matthew 3:17** [[Matthew ch: 3.md]] (votes: 4)
+- **Psalms 85:11** → **Luke 2:14** [[Luke ch: 2.md]] (votes: 4)
+- **Psalms 85:12** → **Acts 21:20** [[Acts ch: 21.md]] (votes: 3)
+- **Psalms 85:12** → **James 1:17** [[James ch: 1.md]] (votes: 16)
+- **Psalms 85:12** → **Micah 6:8** [[Micah ch: 6.md]] (votes: 3)
+- **Psalms 85:12** → **Psalms 72:16** [[Psalms ch: 72.md]] (votes: 3)
+- **Psalms 85:12** → **Isaiah 32:15** [[Isaiah ch: 32.md]] (votes: 2)
+- **Psalms 85:12** → **Psalms 84:11** [[Psalms ch: 84.md]] (votes: 15)
+- **Psalms 85:12** → **Leviticus 26:4** [[Leviticus ch: 26.md]] (votes: 7)
+- **Psalms 85:12** → **Zechariah 8:12** [[Zechariah ch: 8.md]] (votes: 3)
+- **Psalms 85:12** → **Matthew 13:23** [[Matthew ch: 13.md]] (votes: 3)
+- **Psalms 85:12** → **Matthew 13:8** [[Matthew ch: 13.md]] (votes: 2)
+- **Psalms 85:12** → **1 Corinthians 1:30** [[1 Corinthians ch: 1.md]] (votes: 6)
+- **Psalms 85:12** → **Ephesians 1:3** [[Ephesians ch: 1.md]] (votes: 4)
+- **Psalms 85:12** → **Psalms 67:6** [[Psalms ch: 67.md]] (votes: 9)
+- **Psalms 85:12** → **Acts 2:41** [[Acts ch: 2.md]] (votes: 2)
+- **Psalms 85:13** → **1 John 2:6** [[1 John ch: 2.md]] (votes: 4)
+- **Psalms 85:13** → **Galatians 2:20** [[Galatians ch: 2.md]] (votes: 4)
+- **Psalms 85:13** → **Psalms 89:14** [[Psalms ch: 89.md]] (votes: 6)
+- **Psalms 85:13** → **1 Peter 4:1** [[1 Peter ch: 4.md]] (votes: 4)
+- **Psalms 85:13** → **Isaiah 58:8** [[Isaiah ch: 58.md]] (votes: 3)
+- **Psalms 85:13** → **John 13:34** [[John ch: 13.md]] (votes: 5)
+- **Psalms 85:13** → **2 Corinthians 3:18** [[2 Corinthians ch: 3.md]] (votes: 4)
+- **Psalms 85:13** → **Psalms 119:35** [[Psalms ch: 119.md]] (votes: 3)

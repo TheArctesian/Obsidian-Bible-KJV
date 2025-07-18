@@ -1,0 +1,287 @@
+# Deuteronomy 6
+
+**1** ¶ Now these [are] the commandments, the statutes, and the judgments, which the LORD your God commanded to teach you, that ye might do [them] in the land whither ye go to possess it:
+
+**2** That thou mightest fear the LORD thy God, to keep all his statutes and his commandments, which I command thee, thou, and thy son, and thy son's son, all the days of thy life; and that thy days may be prolonged.
+
+**3** Hear therefore, O Israel, and observe to do [it]; that it may be well with thee, and that ye may increase mightily, as the LORD God of thy fathers hath promised thee, in the land that floweth with milk and honey.
+
+**4** ¶ Hear, O Israel: The LORD our God [is] one LORD:
+
+**5** And thou shalt love the LORD thy God with all thine heart, and with all thy soul, and with all thy might.
+
+**6** And these words, which I command thee this day, shall be in thine heart:
+
+**7** And thou shalt teach them diligently unto thy children, and shalt talk of them when thou sittest in thine house, and when thou walkest by the way, and when thou liest down, and when thou risest up.
+
+**8** And thou shalt bind them for a sign upon thine hand, and they shall be as frontlets between thine eyes.
+
+**9** And thou shalt write them upon the posts of thy house, and on thy gates.
+
+**10** And it shall be, when the LORD thy God shall have brought thee into the land which he sware unto thy fathers, to Abraham, to Isaac, and to Jacob, to give thee great and goodly cities, which thou buildedst not,
+
+**11** And houses full of all good [things], which thou filledst not, and wells digged, which thou diggedst not, vineyards and olive trees, which thou plantedst not; when thou shalt have eaten and be full;
+
+**12** [Then] beware lest thou forget the LORD, which brought thee forth out of the land of Egypt, from the house of bondage.
+
+**13** Thou shalt fear the LORD thy God, and serve him, and shalt swear by his name.
+
+**14** Ye shall not go after other gods, of the gods of the people which [are] round about you;
+
+**15** (For the LORD thy God [is] a jealous God among you) lest the anger of the LORD thy God be kindled against thee, and destroy thee from off the face of the earth.
+
+**16** Ye shall not tempt the LORD your God, as ye tempted [him] in Massah.
+
+**17** ¶ Ye shall diligently keep the commandments of the LORD your God, and his testimonies, and his statutes, which he hath commanded thee.
+
+**18** And thou shalt do [that which is] right and good in the sight of the LORD: that it may be well with thee, and that thou mayest go in and possess the good land which the LORD sware unto thy fathers,
+
+**19** To cast out all thine enemies from before thee, as the LORD hath spoken.
+
+**20** [And] when thy son asketh thee in time to come, saying, What [mean] the testimonies, and the statutes, and the judgments, which the LORD our God hath commanded you?
+
+**21** Then thou shalt say unto thy son, We were Pharaoh's bondmen in Egypt; and the LORD brought us out of Egypt with a mighty hand:
+
+**22** And the LORD shewed signs and wonders, great and sore, upon Egypt, upon Pharaoh, and upon all his household, before our eyes:
+
+**23** And he brought us out from thence, that he might bring us in, to give us the land which he sware unto our fathers.
+
+**24** And the LORD commanded us to do all these statutes, to fear the LORD our God, for our good always, that he might preserve us alive, as [it is] at this day.
+
+**25** And it shall be our righteousness, if we observe to do all these commandments before the LORD our God, as he hath commanded us.
+
+---
+
+## Cross-References
+
+- **Deuteronomy 6:1** → **Ezekiel 37:24** [[Ezekiel ch: 37.md]] (votes: 3)
+- **Deuteronomy 6:1** → **Deuteronomy 12:1** [[Deuteronomy ch: 12.md]] (votes: 7)
+- **Deuteronomy 6:1** → **Deuteronomy 4:1** [[Deuteronomy ch: 4.md]] (votes: 9)
+- **Deuteronomy 6:1** → **Deuteronomy 4:5** [[Deuteronomy ch: 4.md]] (votes: 3)
+- **Deuteronomy 6:1** → **Deuteronomy 5:31** [[Deuteronomy ch: 5.md]] (votes: 4)
+- **Deuteronomy 6:1** → **Leviticus 27:34** [[Leviticus ch: 27.md]] (votes: 4)
+- **Deuteronomy 6:1** → **Numbers 36:13** [[Numbers ch: 36.md]] (votes: 3)
+- **Deuteronomy 6:1** → **Deuteronomy 4:14** [[Deuteronomy ch: 4.md]] (votes: 3)
+- **Deuteronomy 6:1** → **Deuteronomy 4:45** [[Deuteronomy ch: 4.md]] (votes: 5)
+- **Deuteronomy 6:2** → **Deuteronomy 10:20** [[Deuteronomy ch: 10.md]] (votes: 4)
+- **Deuteronomy 6:2** → **Genesis 22:12** [[Genesis ch: 22.md]] (votes: 3)
+- **Deuteronomy 6:2** → **Deuteronomy 4:10** [[Deuteronomy ch: 4.md]] (votes: 3)
+- **Deuteronomy 6:2** → **Luke 12:5** [[Luke ch: 12.md]] (votes: 4)
+- **Deuteronomy 6:2** → **Deuteronomy 5:16** [[Deuteronomy ch: 5.md]] (votes: 5)
+- **Deuteronomy 6:2** → **Deuteronomy 22:7** [[Deuteronomy ch: 22.md]] (votes: 3)
+- **Deuteronomy 6:2** → **Ecclesiastes 12:13** [[Ecclesiastes ch: 12.md]] (votes: 9)
+- **Deuteronomy 6:2** → **Deuteronomy 13:4** [[Deuteronomy ch: 13.md]] (votes: 9)
+- **Deuteronomy 6:2** → **Deuteronomy 4:40** [[Deuteronomy ch: 4.md]] (votes: 11)
+- **Deuteronomy 6:2** → **Deuteronomy 6:7** [[Deuteronomy ch: 6.md]] (votes: 3)
+- **Deuteronomy 6:2** → **Proverbs 16:6** [[Proverbs ch: 16.md]] (votes: 3)
+- **Deuteronomy 6:2** → **Psalms 111:10** [[Psalms ch: 111.md]] (votes: 4)
+- **Deuteronomy 6:2** → **Exodus 20:20** [[Exodus ch: 20.md]] (votes: 9)
+- **Deuteronomy 6:2** → **Job 28:28** [[Job ch: 28.md]] (votes: 5)
+- **Deuteronomy 6:2** → **Deuteronomy 5:33** [[Deuteronomy ch: 5.md]] (votes: 3)
+- **Deuteronomy 6:2** → **Genesis 18:19** [[Genesis ch: 18.md]] (votes: 3)
+- **Deuteronomy 6:2** → **Psalms 128:1** [[Psalms ch: 128.md]] (votes: 7)
+- **Deuteronomy 6:2** → **Proverbs 3:16** [[Proverbs ch: 3.md]] (votes: 6)
+- **Deuteronomy 6:2** → **1 Peter 1:17** [[1 Peter ch: 1.md]] (votes: 4)
+- **Deuteronomy 6:3** → **Exodus 3:8** [[Exodus ch: 3.md]] (votes: 5)
+- **Deuteronomy 6:3** → **Genesis 22:17** [[Genesis ch: 22.md]] (votes: 6)
+- **Deuteronomy 6:3** → **Genesis 13:16** [[Genesis ch: 13.md]] (votes: 3)
+- **Deuteronomy 6:3** → **Genesis 28:14** [[Genesis ch: 28.md]] (votes: 5)
+- **Deuteronomy 6:3** → **Exodus 1:7** [[Exodus ch: 1.md]] (votes: 3)
+- **Deuteronomy 6:3** → **Isaiah 3:10** [[Isaiah ch: 3.md]] (votes: 3)
+- **Deuteronomy 6:3** → **Genesis 26:4** [[Genesis ch: 26.md]] (votes: 5)
+- **Deuteronomy 6:3** → **Deuteronomy 4:6** [[Deuteronomy ch: 4.md]] (votes: 3)
+- **Deuteronomy 6:3** → **Ecclesiastes 8:12** [[Ecclesiastes ch: 8.md]] (votes: 3)
+- **Deuteronomy 6:3** → **Genesis 15:5** [[Genesis ch: 15.md]] (votes: 5)
+- **Deuteronomy 6:3** → **Genesis 12:2** [[Genesis ch: 12.md]] (votes: 3)
+- **Deuteronomy 6:3** → **Acts 7:17** [[Acts ch: 7.md]] (votes: 3)
+- **Deuteronomy 6:4** → **1 Kings 18:21** [[1 Kings ch: 18.md]] (votes: 9)
+- **Deuteronomy 6:4** → **John 10:30** [[John ch: 10.md]] (votes: 16)
+- **Deuteronomy 6:4** → **2 Kings 19:5** [[2 Kings ch: 19.md]] (votes: -7)
+- **Deuteronomy 6:4** → **1 Timothy 2:5** [[1 Timothy ch: 2.md]] (votes: 32)
+- **Deuteronomy 6:4** → **Isaiah 42:8** [[Isaiah ch: 42.md]] (votes: 15)
+- **Deuteronomy 6:4** → **Isaiah 44:8** [[Isaiah ch: 44.md]] (votes: 16)
+- **Deuteronomy 6:4** → **Deuteronomy 5:6** [[Deuteronomy ch: 5.md]] (votes: 9)
+- **Deuteronomy 6:4** → **Isaiah 44:6** [[Isaiah ch: 44.md]] (votes: 39)
+- **Deuteronomy 6:4** → **John 17:3** [[John ch: 17.md]] (votes: 21)
+- **Deuteronomy 6:4** → **1 Chronicles 29:10** [[1 Chronicles ch: 29.md]] (votes: 8)
+- **Deuteronomy 6:5** → **2 Kings 23:25** [[2 Kings ch: 23.md]] (votes: 43)
+- **Deuteronomy 6:5** → **Deuteronomy 11:13** [[Deuteronomy ch: 11.md]] (votes: 47)
+- **Deuteronomy 6:5** → **Matthew 10:37** [[Matthew ch: 10.md]] (votes: 34)
+- **Deuteronomy 6:5** → **Matthew 22:37** [[Matthew ch: 22.md]] (votes: 104)
+- **Deuteronomy 6:5** → **Deuteronomy 30:6** [[Deuteronomy ch: 30.md]] (votes: 65)
+- **Deuteronomy 6:5** → **Deuteronomy 10:12** [[Deuteronomy ch: 10.md]] (votes: 80)
+- **Deuteronomy 6:5** → **Luke 10:27** [[Luke ch: 10.md]] (votes: 95)
+- **Deuteronomy 6:5** → **Mark 12:33** [[Mark ch: 12.md]] (votes: 47)
+- **Deuteronomy 6:5** → **1 John 5:3** [[1 John ch: 5.md]] (votes: 54)
+- **Deuteronomy 6:5** → **Deuteronomy 4:29** [[Deuteronomy ch: 4.md]] (votes: 61)
+- **Deuteronomy 6:5** → **Mark 12:30** [[Mark ch: 12.md]] (votes: 128)
+- **Deuteronomy 6:6** → **Deuteronomy 11:18** [[Deuteronomy ch: 11.md]] (votes: 15)
+- **Deuteronomy 6:6** → **Psalms 40:8** [[Psalms ch: 40.md]] (votes: 4)
+- **Deuteronomy 6:6** → **Colossians 3:16** [[Colossians ch: 3.md]] (votes: 19)
+- **Deuteronomy 6:6** → **Luke 8:15** [[Luke ch: 8.md]] (votes: 7)
+- **Deuteronomy 6:6** → **Deuteronomy 32:46** [[Deuteronomy ch: 32.md]] (votes: 11)
+- **Deuteronomy 6:6** → **Proverbs 3:5** [[Proverbs ch: 3.md]] (votes: 7)
+- **Deuteronomy 6:6** → **Proverbs 7:3** [[Proverbs ch: 7.md]] (votes: 17)
+- **Deuteronomy 6:6** → **Psalms 119:11** [[Psalms ch: 119.md]] (votes: 10)
+- **Deuteronomy 6:6** → **Jeremiah 31:33** [[Jeremiah ch: 31.md]] (votes: 17)
+- **Deuteronomy 6:6** → **2 Corinthians 3:3** [[2 Corinthians ch: 3.md]] (votes: 12)
+- **Deuteronomy 6:6** → **Psalms 119:98** [[Psalms ch: 119.md]] (votes: 4)
+- **Deuteronomy 6:6** → **Psalms 37:31** [[Psalms ch: 37.md]] (votes: 13)
+- **Deuteronomy 6:6** → **Luke 2:51** [[Luke ch: 2.md]] (votes: 6)
+- **Deuteronomy 6:6** → **2 John 1:2** [[2 John ch: 1.md]] (votes: 3)
+- **Deuteronomy 6:6** → **Isaiah 51:7** [[Isaiah ch: 51.md]] (votes: 8)
+- **Deuteronomy 6:7** → **Matthew 12:35** [[Matthew ch: 12.md]] (votes: 6)
+- **Deuteronomy 6:7** → **Luke 6:45** [[Luke ch: 6.md]] (votes: 8)
+- **Deuteronomy 6:7** → **Proverbs 10:21** [[Proverbs ch: 10.md]] (votes: 5)
+- **Deuteronomy 6:7** → **Ruth 2:4** [[Ruth ch: 2.md]] (votes: 2)
+- **Deuteronomy 6:7** → **Ruth 2:12** [[Ruth ch: 2.md]] (votes: 1)
+- **Deuteronomy 6:7** → **Ephesians 4:29** [[Ephesians ch: 4.md]] (votes: 13)
+- **Deuteronomy 6:7** → **Proverbs 15:2** [[Proverbs ch: 15.md]] (votes: 5)
+- **Deuteronomy 6:7** → **Proverbs 15:7** [[Proverbs ch: 15.md]] (votes: 4)
+- **Deuteronomy 6:7** → **1 Peter 3:15** [[1 Peter ch: 3.md]] (votes: 16)
+- **Deuteronomy 6:7** → **Colossians 4:6** [[Colossians ch: 4.md]] (votes: 5)
+- **Deuteronomy 6:7** → **Psalms 129:8** [[Psalms ch: 129.md]] (votes: 4)
+- **Deuteronomy 6:7** → **Deuteronomy 11:19** [[Deuteronomy ch: 11.md]] (votes: 32)
+- **Deuteronomy 6:7** → **Psalms 119:46** [[Psalms ch: 119.md]] (votes: 4)
+- **Deuteronomy 6:7** → **Ruth 4:11** [[Ruth ch: 4.md]] (votes: 3)
+- **Deuteronomy 6:7** → **Deuteronomy 6:2** [[Deuteronomy ch: 6.md]] (votes: 15)
+- **Deuteronomy 6:7** → **Malachi 3:16** [[Malachi ch: 3.md]] (votes: 3)
+- **Deuteronomy 6:7** → **Ephesians 6:4** [[Ephesians ch: 6.md]] (votes: 27)
+- **Deuteronomy 6:7** → **Genesis 18:19** [[Genesis ch: 18.md]] (votes: 11)
+- **Deuteronomy 6:7** → **Psalms 37:30** [[Psalms ch: 37.md]] (votes: 3)
+- **Deuteronomy 6:7** → **Proverbs 6:22** [[Proverbs ch: 6.md]] (votes: 9)
+- **Deuteronomy 6:8** → **Proverbs 7:3** [[Proverbs ch: 7.md]] (votes: 12)
+- **Deuteronomy 6:8** → **Matthew 23:5** [[Matthew ch: 23.md]] (votes: 6)
+- **Deuteronomy 6:8** → **Proverbs 3:3** [[Proverbs ch: 3.md]] (votes: 14)
+- **Deuteronomy 6:8** → **Hebrews 2:1** [[Hebrews ch: 2.md]] (votes: 6)
+- **Deuteronomy 6:8** → **Proverbs 6:21** [[Proverbs ch: 6.md]] (votes: 17)
+- **Deuteronomy 6:8** → **Exodus 13:9** [[Exodus ch: 13.md]] (votes: 12)
+- **Deuteronomy 6:8** → **Exodus 13:16** [[Exodus ch: 13.md]] (votes: 8)
+- **Deuteronomy 6:8** → **Deuteronomy 11:18** [[Deuteronomy ch: 11.md]] (votes: 14)
+- **Deuteronomy 6:9** → **Deuteronomy 11:20** [[Deuteronomy ch: 11.md]] (votes: 12)
+- **Deuteronomy 6:9** → **Isaiah 57:8** [[Isaiah ch: 57.md]] (votes: 6)
+- **Deuteronomy 6:9** → **Habakkuk 2:2** [[Habakkuk ch: 2.md]] (votes: 4)
+- **Deuteronomy 6:9** → **Isaiah 30:8** [[Isaiah ch: 30.md]] (votes: 8)
+- **Deuteronomy 6:9** → **Exodus 12:7** [[Exodus ch: 12.md]] (votes: 3)
+- **Deuteronomy 6:10** → **Joshua 24:13** [[Joshua ch: 24.md]] (votes: 22)
+- **Deuteronomy 6:10** → **Nehemiah 9:25** [[Nehemiah ch: 9.md]] (votes: 15)
+- **Deuteronomy 6:10** → **Genesis 15:18** [[Genesis ch: 15.md]] (votes: 7)
+- **Deuteronomy 6:10** → **Genesis 28:13** [[Genesis ch: 28.md]] (votes: 6)
+- **Deuteronomy 6:10** → **Psalms 78:55** [[Psalms ch: 78.md]] (votes: 9)
+- **Deuteronomy 6:10** → **Genesis 26:3** [[Genesis ch: 26.md]] (votes: 8)
+- **Deuteronomy 6:10** → **Psalms 105:44** [[Psalms ch: 105.md]] (votes: 16)
+- **Deuteronomy 6:11** → **Deuteronomy 32:15** [[Deuteronomy ch: 32.md]] (votes: 6)
+- **Deuteronomy 6:11** → **Judges 3:7** [[Judges ch: 3.md]] (votes: 5)
+- **Deuteronomy 6:13** → **Matthew 4:10** [[Matthew ch: 4.md]] (votes: 11)
+- **Deuteronomy 6:13** → **Jeremiah 5:2** [[Jeremiah ch: 5.md]] (votes: 3)
+- **Deuteronomy 6:13** → **Deuteronomy 6:2** [[Deuteronomy ch: 6.md]] (votes: 4)
+- **Deuteronomy 6:13** → **Isaiah 45:23** [[Isaiah ch: 45.md]] (votes: 5)
+- **Deuteronomy 6:13** → **Leviticus 19:12** [[Leviticus ch: 19.md]] (votes: 7)
+- **Deuteronomy 6:13** → **Joshua 2:12** [[Joshua ch: 2.md]] (votes: 4)
+- **Deuteronomy 6:13** → **Jeremiah 4:2** [[Jeremiah ch: 4.md]] (votes: 4)
+- **Deuteronomy 6:13** → **Jeremiah 5:7** [[Jeremiah ch: 5.md]] (votes: 3)
+- **Deuteronomy 6:13** → **Deuteronomy 5:29** [[Deuteronomy ch: 5.md]] (votes: 4)
+- **Deuteronomy 6:13** → **Psalms 15:4** [[Psalms ch: 15.md]] (votes: 3)
+- **Deuteronomy 6:13** → **Deuteronomy 10:12** [[Deuteronomy ch: 10.md]] (votes: 6)
+- **Deuteronomy 6:13** → **Luke 4:8** [[Luke ch: 4.md]] (votes: 14)
+- **Deuteronomy 6:13** → **Psalms 63:11** [[Psalms ch: 63.md]] (votes: 5)
+- **Deuteronomy 6:13** → **Deuteronomy 10:20** [[Deuteronomy ch: 10.md]] (votes: 11)
+- **Deuteronomy 6:13** → **Jeremiah 12:16** [[Jeremiah ch: 12.md]] (votes: 5)
+- **Deuteronomy 6:13** → **Isaiah 65:16** [[Isaiah ch: 65.md]] (votes: 5)
+- **Deuteronomy 6:13** → **Deuteronomy 13:4** [[Deuteronomy ch: 13.md]] (votes: 9)
+- **Deuteronomy 6:14** → **Deuteronomy 13:7** [[Deuteronomy ch: 13.md]] (votes: 6)
+- **Deuteronomy 6:14** → **Deuteronomy 8:19** [[Deuteronomy ch: 8.md]] (votes: 5)
+- **Deuteronomy 6:14** → **1 John 5:21** [[1 John ch: 5.md]] (votes: 6)
+- **Deuteronomy 6:14** → **Deuteronomy 11:28** [[Deuteronomy ch: 11.md]] (votes: 4)
+- **Deuteronomy 6:14** → **Jeremiah 25:6** [[Jeremiah ch: 25.md]] (votes: 9)
+- **Deuteronomy 6:15** → **1 Corinthians 10:22** [[1 Corinthians ch: 10.md]] (votes: 1)
+- **Deuteronomy 6:15** → **Psalms 90:11** [[Psalms ch: 90.md]] (votes: 2)
+- **Deuteronomy 6:15** → **2 Chronicles 36:16** [[2 Chronicles ch: 36.md]] (votes: 2)
+- **Deuteronomy 6:15** → **Psalms 90:7** [[Psalms ch: 90.md]] (votes: 2)
+- **Deuteronomy 6:15** → **Amos 3:2** [[Amos ch: 3.md]] (votes: 2)
+- **Deuteronomy 6:15** → **Deuteronomy 5:9** [[Deuteronomy ch: 5.md]] (votes: 2)
+- **Deuteronomy 6:15** → **Deuteronomy 4:24** [[Deuteronomy ch: 4.md]] (votes: 9)
+- **Deuteronomy 6:15** → **Exodus 32:12** [[Exodus ch: 32.md]] (votes: 2)
+- **Deuteronomy 6:15** → **Genesis 7:4** [[Genesis ch: 7.md]] (votes: 2)
+- **Deuteronomy 6:15** → **Deuteronomy 7:4** [[Deuteronomy ch: 7.md]] (votes: 3)
+- **Deuteronomy 6:15** → **Exodus 20:5** [[Exodus ch: 20.md]] (votes: 7)
+- **Deuteronomy 6:15** → **Deuteronomy 11:17** [[Deuteronomy ch: 11.md]] (votes: 3)
+- **Deuteronomy 6:15** → **1 Kings 13:34** [[1 Kings ch: 13.md]] (votes: 2)
+- **Deuteronomy 6:15** → **Amos 9:8** [[Amos ch: 9.md]] (votes: 2)
+- **Deuteronomy 6:16** → **Exodus 17:2** [[Exodus ch: 17.md]] (votes: 14)
+- **Deuteronomy 6:16** → **Luke 4:12** [[Luke ch: 4.md]] (votes: 26)
+- **Deuteronomy 6:16** → **1 Corinthians 10:9** [[1 Corinthians ch: 10.md]] (votes: 17)
+- **Deuteronomy 6:16** → **Matthew 4:7** [[Matthew ch: 4.md]] (votes: 25)
+- **Deuteronomy 6:16** → **Exodus 17:7** [[Exodus ch: 17.md]] (votes: 30)
+- **Deuteronomy 6:16** → **Numbers 20:13** [[Numbers ch: 20.md]] (votes: 8)
+- **Deuteronomy 6:17** → **2 Peter 3:14** [[2 Peter ch: 3.md]] (votes: 5)
+- **Deuteronomy 6:17** → **Exodus 15:26** [[Exodus ch: 15.md]] (votes: 3)
+- **Deuteronomy 6:17** → **Deuteronomy 11:13** [[Deuteronomy ch: 11.md]] (votes: 2)
+- **Deuteronomy 6:17** → **Deuteronomy 11:22** [[Deuteronomy ch: 11.md]] (votes: 7)
+- **Deuteronomy 6:17** → **Hebrews 6:11** [[Hebrews ch: 6.md]] (votes: 2)
+- **Deuteronomy 6:17** → **Titus 3:8** [[Titus ch: 3.md]] (votes: 3)
+- **Deuteronomy 6:17** → **Psalms 119:4** [[Psalms ch: 119.md]] (votes: 7)
+- **Deuteronomy 6:17** → **1 Corinthians 15:58** [[1 Corinthians ch: 15.md]] (votes: 5)
+- **Deuteronomy 6:18** → **Ezekiel 33:16** [[Ezekiel ch: 33.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Ezekiel 33:14** [[Ezekiel ch: 33.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Deuteronomy 12:25** [[Deuteronomy ch: 12.md]] (votes: 5)
+- **Deuteronomy 6:18** → **Romans 12:2** [[Romans ch: 12.md]] (votes: 4)
+- **Deuteronomy 6:18** → **Ezekiel 33:19** [[Ezekiel ch: 33.md]] (votes: 3)
+- **Deuteronomy 6:18** → **Deuteronomy 4:40** [[Deuteronomy ch: 4.md]] (votes: 8)
+- **Deuteronomy 6:18** → **Isaiah 3:10** [[Isaiah ch: 3.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Ezekiel 18:5** [[Ezekiel ch: 18.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Psalms 19:11** [[Psalms ch: 19.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Deuteronomy 5:29** [[Deuteronomy ch: 5.md]] (votes: 4)
+- **Deuteronomy 6:18** → **Deuteronomy 8:11** [[Deuteronomy ch: 8.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Deuteronomy 12:28** [[Deuteronomy ch: 12.md]] (votes: 2)
+- **Deuteronomy 6:18** → **John 8:29** [[John ch: 8.md]] (votes: 3)
+- **Deuteronomy 6:18** → **Deuteronomy 13:18** [[Deuteronomy ch: 13.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Ezekiel 18:19** [[Ezekiel ch: 18.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Deuteronomy 5:33** [[Deuteronomy ch: 5.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Ezekiel 18:21** [[Ezekiel ch: 18.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Ezekiel 18:27** [[Ezekiel ch: 18.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Hosea 14:9** [[Hosea ch: 14.md]] (votes: 2)
+- **Deuteronomy 6:18** → **Exodus 15:26** [[Exodus ch: 15.md]] (votes: 2)
+- **Deuteronomy 6:20** → **Proverbs 22:6** [[Proverbs ch: 22.md]] (votes: 0)
+- **Deuteronomy 6:20** → **Deuteronomy 6:7** [[Deuteronomy ch: 6.md]] (votes: 1)
+- **Deuteronomy 6:20** → **Exodus 12:26** [[Exodus ch: 12.md]] (votes: 5)
+- **Deuteronomy 6:20** → **Exodus 13:14** [[Exodus ch: 13.md]] (votes: 7)
+- **Deuteronomy 6:21** → **Isaiah 51:1** [[Isaiah ch: 51.md]] (votes: 2)
+- **Deuteronomy 6:21** → **Deuteronomy 5:15** [[Deuteronomy ch: 5.md]] (votes: 2)
+- **Deuteronomy 6:21** → **Exodus 3:19** [[Exodus ch: 3.md]] (votes: 2)
+- **Deuteronomy 6:21** → **Deuteronomy 5:6** [[Deuteronomy ch: 5.md]] (votes: 3)
+- **Deuteronomy 6:21** → **Exodus 13:3** [[Exodus ch: 13.md]] (votes: 2)
+- **Deuteronomy 6:21** → **Deuteronomy 15:15** [[Deuteronomy ch: 15.md]] (votes: 3)
+- **Deuteronomy 6:21** → **Exodus 20:2** [[Exodus ch: 20.md]] (votes: 3)
+- **Deuteronomy 6:22** → **Deuteronomy 7:19** [[Deuteronomy ch: 7.md]] (votes: 3)
+- **Deuteronomy 6:22** → **Psalms 91:8** [[Psalms ch: 91.md]] (votes: 3)
+- **Deuteronomy 6:22** → **Deuteronomy 4:3** [[Deuteronomy ch: 4.md]] (votes: 2)
+- **Deuteronomy 6:22** → **Psalms 135:9** [[Psalms ch: 135.md]] (votes: 1)
+- **Deuteronomy 6:22** → **Deuteronomy 3:21** [[Deuteronomy ch: 3.md]] (votes: 2)
+- **Deuteronomy 6:22** → **Deuteronomy 4:34** [[Deuteronomy ch: 4.md]] (votes: 4)
+- **Deuteronomy 6:22** → **Deuteronomy 1:30** [[Deuteronomy ch: 1.md]] (votes: 2)
+- **Deuteronomy 6:23** → **Exodus 13:5** [[Exodus ch: 13.md]] (votes: 4)
+- **Deuteronomy 6:23** → **Deuteronomy 1:8** [[Deuteronomy ch: 1.md]] (votes: 4)
+- **Deuteronomy 6:23** → **Deuteronomy 6:10** [[Deuteronomy ch: 6.md]] (votes: 4)
+- **Deuteronomy 6:23** → **Deuteronomy 6:18** [[Deuteronomy ch: 6.md]] (votes: 7)
+- **Deuteronomy 6:23** → **Deuteronomy 1:35** [[Deuteronomy ch: 1.md]] (votes: 1)
+- **Deuteronomy 6:24** → **Psalms 66:9** [[Psalms ch: 66.md]] (votes: 2)
+- **Deuteronomy 6:24** → **Deuteronomy 8:3** [[Deuteronomy ch: 8.md]] (votes: 2)
+- **Deuteronomy 6:24** → **Proverbs 22:4** [[Proverbs ch: 22.md]] (votes: 2)
+- **Deuteronomy 6:24** → **Matthew 6:33** [[Matthew ch: 6.md]] (votes: 2)
+- **Deuteronomy 6:24** → **Deuteronomy 4:4** [[Deuteronomy ch: 4.md]] (votes: 2)
+- **Deuteronomy 6:24** → **Romans 10:5** [[Romans ch: 10.md]] (votes: 4)
+- **Deuteronomy 6:24** → **Proverbs 9:12** [[Proverbs ch: 9.md]] (votes: 2)
+- **Deuteronomy 6:24** → **Isaiah 3:10** [[Isaiah ch: 3.md]] (votes: 5)
+- **Deuteronomy 6:24** → **Jeremiah 32:39** [[Jeremiah ch: 32.md]] (votes: 13)
+- **Deuteronomy 6:24** → **Deuteronomy 8:1** [[Deuteronomy ch: 8.md]] (votes: 4)
+- **Deuteronomy 6:24** → **Deuteronomy 4:1** [[Deuteronomy ch: 4.md]] (votes: 4)
+- **Deuteronomy 6:24** → **Psalms 41:2** [[Psalms ch: 41.md]] (votes: 8)
+- **Deuteronomy 6:25** → **Romans 10:3** [[Romans ch: 10.md]] (votes: 6)
+- **Deuteronomy 6:25** → **Galatians 3:12** [[Galatians ch: 3.md]] (votes: 1)
+- **Deuteronomy 6:25** → **Deuteronomy 24:13** [[Deuteronomy ch: 24.md]] (votes: 7)
+- **Deuteronomy 6:25** → **Psalms 119:6** [[Psalms ch: 119.md]] (votes: 2)
+- **Deuteronomy 6:25** → **Proverbs 12:28** [[Proverbs ch: 12.md]] (votes: 2)
+- **Deuteronomy 6:25** → **James 2:10** [[James ch: 2.md]] (votes: 2)
+- **Deuteronomy 6:25** → **Leviticus 18:5** [[Leviticus ch: 18.md]] (votes: 2)
+- **Deuteronomy 6:25** → **Ezekiel 20:11** [[Ezekiel ch: 20.md]] (votes: 1)

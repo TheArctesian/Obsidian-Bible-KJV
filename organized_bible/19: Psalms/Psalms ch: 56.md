@@ -1,0 +1,168 @@
+# Psalms 56
+
+**1** ¶ To the chief Musician upon Jonathelemrechokim, Michtam of David, when the Philistines took him in Gath. Be merciful unto me, O God: for man would swallow me up; he fighting daily oppresseth me.
+
+**2** Mine enemies would daily swallow [me] up: for [they be] many that fight against me, O thou most High.
+
+**3** What time I am afraid, I will trust in thee.
+
+**4** In God I will praise his word, in God I have put my trust; I will not fear what flesh can do unto me.
+
+**5** Every day they wrest my words: all their thoughts [are] against me for evil.
+
+**6** They gather themselves together, they hide themselves, they mark my steps, when they wait for my soul.
+
+**7** Shall they escape by iniquity? in [thine] anger cast down the people, O God.
+
+**8** ¶ Thou tellest my wanderings: put thou my tears into thy bottle: [are they] not in thy book?
+
+**9** When I cry [unto thee], then shall mine enemies turn back: this I know; for God [is] for me.
+
+**10** In God will I praise [his] word: in the LORD will I praise [his] word.
+
+**11** In God have I put my trust: I will not be afraid what man can do unto me.
+
+**12** Thy vows [are] upon me, O God: I will render praises unto thee.
+
+**13** For thou hast delivered my soul from death: [wilt] not [thou deliver] my feet from falling, that I may walk before God in the light of the living?
+
+---
+
+## Cross-References
+
+- **Psalms 56:1** → **Psalms 16:1** [[Psalms ch: 16.md]] (votes: 5)
+- **Psalms 56:1** → **1 Corinthians 15:54** [[1 Corinthians ch: 15.md]] (votes: 3)
+- **Psalms 56:1** → **Psalms 31:9** [[Psalms ch: 31.md]] (votes: 5)
+- **Psalms 56:1** → **Psalms 143:12** [[Psalms ch: 143.md]] (votes: 4)
+- **Psalms 56:1** → **Psalms 35:25** [[Psalms ch: 35.md]] (votes: 3)
+- **Psalms 56:1** → **Psalms 21:9** [[Psalms ch: 21.md]] (votes: 3)
+- **Psalms 56:1** → **Psalms 136:10** [[Psalms ch: 136.md]] (votes: 3)
+- **Psalms 56:1** → **Psalms 106:17** [[Psalms ch: 106.md]] (votes: 2)
+- **Psalms 56:1** → **Lamentations 2:16** [[Lamentations ch: 2.md]] (votes: 2)
+- **Psalms 56:1** → **Psalms 124:3** [[Psalms ch: 124.md]] (votes: 3)
+- **Psalms 56:1** → **1 Samuel 29:4** [[1 Samuel ch: 29.md]] (votes: 6)
+- **Psalms 56:1** → **Psalms 136:15** [[Psalms ch: 136.md]] (votes: 3)
+- **Psalms 56:1** → **Psalms 58:1** [[Psalms ch: 58.md]] (votes: 3)
+- **Psalms 56:1** → **Lamentations 2:2** [[Lamentations ch: 2.md]] (votes: 3)
+- **Psalms 56:1** → **Lamentations 2:5** [[Lamentations ch: 2.md]] (votes: 3)
+- **Psalms 56:1** → **Psalms 27:2** [[Psalms ch: 27.md]] (votes: 4)
+- **Psalms 56:1** → **Hosea 8:8** [[Hosea ch: 8.md]] (votes: 3)
+- **Psalms 56:1** → **Psalms 59:1** [[Psalms ch: 59.md]] (votes: 5)
+- **Psalms 56:1** → **Psalms 60:1** [[Psalms ch: 60.md]] (votes: 4)
+- **Psalms 56:1** → **Proverbs 1:12** [[Proverbs ch: 1.md]] (votes: 3)
+- **Psalms 56:1** → **Psalms 59:10** [[Psalms ch: 59.md]] (votes: 2)
+- **Psalms 56:2** → **Psalms 57:3** [[Psalms ch: 57.md]] (votes: 4)
+- **Psalms 56:2** → **Isaiah 57:15** [[Isaiah ch: 57.md]] (votes: 3)
+- **Psalms 56:2** → **Psalms 3:1** [[Psalms ch: 3.md]] (votes: 3)
+- **Psalms 56:2** → **Psalms 92:1** [[Psalms ch: 92.md]] (votes: 3)
+- **Psalms 56:2** → **Micah 6:6** [[Micah ch: 6.md]] (votes: 3)
+- **Psalms 56:2** → **Revelation 16:14** [[Revelation ch: 16.md]] (votes: 3)
+- **Psalms 56:2** → **Psalms 91:1** [[Psalms ch: 91.md]] (votes: 3)
+- **Psalms 56:2** → **Psalms 9:2** [[Psalms ch: 9.md]] (votes: 3)
+- **Psalms 56:2** → **Daniel 5:18** [[Daniel ch: 5.md]] (votes: 3)
+- **Psalms 56:2** → **Psalms 35:1** [[Psalms ch: 35.md]] (votes: 3)
+- **Psalms 56:2** → **Psalms 93:4** [[Psalms ch: 93.md]] (votes: 3)
+- **Psalms 56:2** → **Psalms 92:8** [[Psalms ch: 92.md]] (votes: 3)
+- **Psalms 56:2** → **Psalms 54:5** [[Psalms ch: 54.md]] (votes: 3)
+- **Psalms 56:3** → **Psalms 11:1** [[Psalms ch: 11.md]] (votes: 13)
+- **Psalms 56:3** → **Psalms 34:4** [[Psalms ch: 34.md]] (votes: 67)
+- **Psalms 56:3** → **1 Samuel 30:6** [[1 Samuel ch: 30.md]] (votes: 25)
+- **Psalms 56:3** → **1 Samuel 21:10** [[1 Samuel ch: 21.md]] (votes: 11)
+- **Psalms 56:3** → **1 Samuel 21:12** [[1 Samuel ch: 21.md]] (votes: 13)
+- **Psalms 56:3** → **2 Chronicles 20:3** [[2 Chronicles ch: 20.md]] (votes: 14)
+- **Psalms 56:4** → **Psalms 27:1** [[Psalms ch: 27.md]] (votes: 25)
+- **Psalms 56:4** → **Psalms 119:160** [[Psalms ch: 119.md]] (votes: 6)
+- **Psalms 56:4** → **John 10:35** [[John ch: 10.md]] (votes: 1)
+- **Psalms 56:4** → **Psalms 118:6** [[Psalms ch: 118.md]] (votes: 34)
+- **Psalms 56:4** → **Isaiah 41:10** [[Isaiah ch: 41.md]] (votes: 21)
+- **Psalms 56:4** → **Psalms 138:2** [[Psalms ch: 138.md]] (votes: 4)
+- **Psalms 56:4** → **Psalms 12:6** [[Psalms ch: 12.md]] (votes: 6)
+- **Psalms 56:4** → **Hebrews 13:6** [[Hebrews ch: 13.md]] (votes: 34)
+- **Psalms 56:4** → **Isaiah 31:3** [[Isaiah ch: 31.md]] (votes: 7)
+- **Psalms 56:5** → **Jeremiah 18:18** [[Jeremiah ch: 18.md]] (votes: 3)
+- **Psalms 56:5** → **1 Samuel 18:29** [[1 Samuel ch: 18.md]] (votes: 3)
+- **Psalms 56:5** → **2 Peter 3:16** [[2 Peter ch: 3.md]] (votes: 6)
+- **Psalms 56:5** → **Psalms 41:7** [[Psalms ch: 41.md]] (votes: 7)
+- **Psalms 56:5** → **Luke 11:54** [[Luke ch: 11.md]] (votes: 8)
+- **Psalms 56:5** → **1 Samuel 18:17** [[1 Samuel ch: 18.md]] (votes: 4)
+- **Psalms 56:5** → **1 Samuel 18:21** [[1 Samuel ch: 18.md]] (votes: 5)
+- **Psalms 56:5** → **John 2:19** [[John ch: 2.md]] (votes: 4)
+- **Psalms 56:5** → **1 Samuel 20:33** [[1 Samuel ch: 20.md]] (votes: 2)
+- **Psalms 56:5** → **Matthew 22:15** [[Matthew ch: 22.md]] (votes: 8)
+- **Psalms 56:5** → **1 Samuel 20:7** [[1 Samuel ch: 20.md]] (votes: 2)
+- **Psalms 56:5** → **Matthew 26:61** [[Matthew ch: 26.md]] (votes: 3)
+- **Psalms 56:6** → **Psalms 140:2** [[Psalms ch: 140.md]] (votes: 5)
+- **Psalms 56:6** → **Psalms 57:6** [[Psalms ch: 57.md]] (votes: 2)
+- **Psalms 56:6** → **Psalms 37:32** [[Psalms ch: 37.md]] (votes: 2)
+- **Psalms 56:6** → **Luke 20:20** [[Luke ch: 20.md]] (votes: 3)
+- **Psalms 56:6** → **Psalms 59:3** [[Psalms ch: 59.md]] (votes: 7)
+- **Psalms 56:6** → **Psalms 71:10** [[Psalms ch: 71.md]] (votes: 7)
+- **Psalms 56:6** → **Isaiah 54:15** [[Isaiah ch: 54.md]] (votes: 2)
+- **Psalms 56:6** → **Jeremiah 20:10** [[Jeremiah ch: 20.md]] (votes: 2)
+- **Psalms 56:6** → **Daniel 6:4** [[Daniel ch: 6.md]] (votes: 2)
+- **Psalms 56:6** → **Psalms 89:51** [[Psalms ch: 89.md]] (votes: 2)
+- **Psalms 56:6** → **Job 31:4** [[Job ch: 31.md]] (votes: 2)
+- **Psalms 56:6** → **Matthew 27:1** [[Matthew ch: 27.md]] (votes: 2)
+- **Psalms 56:6** → **Job 14:16** [[Job ch: 14.md]] (votes: 2)
+- **Psalms 56:6** → **Matthew 26:57** [[Matthew ch: 26.md]] (votes: 2)
+- **Psalms 56:7** → **Habakkuk 1:13** [[Habakkuk ch: 1.md]] (votes: 3)
+- **Psalms 56:7** → **Isaiah 28:15** [[Isaiah ch: 28.md]] (votes: 3)
+- **Psalms 56:7** → **Ecclesiastes 8:8** [[Ecclesiastes ch: 8.md]] (votes: 3)
+- **Psalms 56:7** → **Jeremiah 7:10** [[Jeremiah ch: 7.md]] (votes: 3)
+- **Psalms 56:7** → **Psalms 36:12** [[Psalms ch: 36.md]] (votes: 3)
+- **Psalms 56:7** → **Psalms 55:23** [[Psalms ch: 55.md]] (votes: 5)
+- **Psalms 56:7** → **Jeremiah 10:25** [[Jeremiah ch: 10.md]] (votes: 3)
+- **Psalms 56:7** → **Psalms 55:9** [[Psalms ch: 55.md]] (votes: 3)
+- **Psalms 56:7** → **Psalms 55:15** [[Psalms ch: 55.md]] (votes: 3)
+- **Psalms 56:8** → **Hebrews 11:8** [[Hebrews ch: 11.md]] (votes: 3)
+- **Psalms 56:8** → **Psalms 139:16** [[Psalms ch: 139.md]] (votes: 18)
+- **Psalms 56:8** → **Hebrews 11:13** [[Hebrews ch: 11.md]] (votes: 11)
+- **Psalms 56:8** → **Revelation 20:12** [[Revelation ch: 20.md]] (votes: 8)
+- **Psalms 56:8** → **Job 16:20** [[Job ch: 16.md]] (votes: 11)
+- **Psalms 56:8** → **2 Corinthians 11:26** [[2 Corinthians ch: 11.md]] (votes: 3)
+- **Psalms 56:8** → **2 Kings 20:5** [[2 Kings ch: 20.md]] (votes: 28)
+- **Psalms 56:8** → **Matthew 10:30** [[Matthew ch: 10.md]] (votes: 18)
+- **Psalms 56:8** → **Hebrews 11:38** [[Hebrews ch: 11.md]] (votes: 6)
+- **Psalms 56:8** → **Malachi 3:16** [[Malachi ch: 3.md]] (votes: 22)
+- **Psalms 56:8** → **Psalms 39:12** [[Psalms ch: 39.md]] (votes: 24)
+- **Psalms 56:8** → **Revelation 7:17** [[Revelation ch: 7.md]] (votes: 21)
+- **Psalms 56:8** → **Psalms 121:8** [[Psalms ch: 121.md]] (votes: 15)
+- **Psalms 56:8** → **1 Samuel 27:1** [[1 Samuel ch: 27.md]] (votes: 5)
+- **Psalms 56:8** → **Isaiah 63:9** [[Isaiah ch: 63.md]] (votes: 10)
+- **Psalms 56:8** → **1 Samuel 19:18** [[1 Samuel ch: 19.md]] (votes: 5)
+- **Psalms 56:9** → **Psalms 102:2** [[Psalms ch: 102.md]] (votes: 10)
+- **Psalms 56:9** → **Psalms 9:3** [[Psalms ch: 9.md]] (votes: 8)
+- **Psalms 56:9** → **Psalms 46:11** [[Psalms ch: 46.md]] (votes: 10)
+- **Psalms 56:9** → **Romans 8:31** [[Romans ch: 8.md]] (votes: 13)
+- **Psalms 56:9** → **Psalms 46:7** [[Psalms ch: 46.md]] (votes: 8)
+- **Psalms 56:9** → **Psalms 27:2** [[Psalms ch: 27.md]] (votes: 7)
+- **Psalms 56:9** → **Jeremiah 33:3** [[Jeremiah ch: 33.md]] (votes: 8)
+- **Psalms 56:9** → **John 18:6** [[John ch: 18.md]] (votes: 8)
+- **Psalms 56:9** → **Psalms 118:6** [[Psalms ch: 118.md]] (votes: 10)
+- **Psalms 56:10** → **Hebrews 6:18** [[Hebrews ch: 6.md]] (votes: 1)
+- **Psalms 56:10** → **Matthew 24:35** [[Matthew ch: 24.md]] (votes: 6)
+- **Psalms 56:10** → **Psalms 56:4** [[Psalms ch: 56.md]] (votes: 2)
+- **Psalms 56:10** → **Genesis 32:11** [[Genesis ch: 32.md]] (votes: 2)
+- **Psalms 56:10** → **Psalms 60:6** [[Psalms ch: 60.md]] (votes: 2)
+- **Psalms 56:10** → **2 Peter 1:4** [[2 Peter ch: 1.md]] (votes: 2)
+- **Psalms 56:11** → **Psalms 27:1** [[Psalms ch: 27.md]] (votes: 15)
+- **Psalms 56:12** → **Isaiah 12:1** [[Isaiah ch: 12.md]] (votes: 1)
+- **Psalms 56:12** → **Psalms 21:13** [[Psalms ch: 21.md]] (votes: 2)
+- **Psalms 56:12** → **1 Samuel 1:11** [[1 Samuel ch: 1.md]] (votes: 2)
+- **Psalms 56:12** → **Psalms 119:106** [[Psalms ch: 119.md]] (votes: 3)
+- **Psalms 56:12** → **Psalms 76:11** [[Psalms ch: 76.md]] (votes: 3)
+- **Psalms 56:12** → **Psalms 50:14** [[Psalms ch: 50.md]] (votes: 4)
+- **Psalms 56:13** → **Isaiah 2:5** [[Isaiah ch: 2.md]] (votes: 7)
+- **Psalms 56:13** → **1 Samuel 2:9** [[1 Samuel ch: 2.md]] (votes: 4)
+- **Psalms 56:13** → **Genesis 17:1** [[Genesis ch: 17.md]] (votes: 7)
+- **Psalms 56:13** → **John 8:12** [[John ch: 8.md]] (votes: 3)
+- **Psalms 56:13** → **Hebrews 2:15** [[Hebrews ch: 2.md]] (votes: 4)
+- **Psalms 56:13** → **Job 33:30** [[Job ch: 33.md]] (votes: 13)
+- **Psalms 56:13** → **Psalms 17:5** [[Psalms ch: 17.md]] (votes: 8)
+- **Psalms 56:13** → **Psalms 49:15** [[Psalms ch: 49.md]] (votes: 9)
+- **Psalms 56:13** → **Psalms 145:14** [[Psalms ch: 145.md]] (votes: 9)
+- **Psalms 56:13** → **2 Corinthians 1:10** [[2 Corinthians ch: 1.md]] (votes: 2)
+- **Psalms 56:13** → **James 5:20** [[James ch: 5.md]] (votes: 4)
+- **Psalms 56:13** → **Psalms 94:18** [[Psalms ch: 94.md]] (votes: 6)
+- **Psalms 56:13** → **Isaiah 38:3** [[Isaiah ch: 38.md]] (votes: 6)
+- **Psalms 56:13** → **1 Thessalonians 1:10** [[1 Thessalonians ch: 1.md]] (votes: 8)

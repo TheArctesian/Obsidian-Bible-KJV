@@ -1,0 +1,308 @@
+# 2 Kings 5
+
+**1** ¶ Now Naaman, captain of the host of the king of Syria, was a great man with his master, and honourable, because by him the LORD had given deliverance unto Syria: he was also a mighty man in valour, [but he was] a leper.
+
+**2** And the Syrians had gone out by companies, and had brought away captive out of the land of Israel a little maid; and she waited on Naaman's wife.
+
+**3** And she said unto her mistress, Would God my lord [were] with the prophet that [is] in Samaria! for he would recover him of his leprosy.
+
+**4** And [one] went in, and told his lord, saying, Thus and thus said the maid that [is] of the land of Israel.
+
+**5** And the king of Syria said, Go to, go, and I will send a letter unto the king of Israel. And he departed, and took with him ten talents of silver, and six thousand [pieces] of gold, and ten changes of raiment.
+
+**6** And he brought the letter to the king of Israel, saying, Now when this letter is come unto thee, behold, I have [therewith] sent Naaman my servant to thee, that thou mayest recover him of his leprosy.
+
+**7** And it came to pass, when the king of Israel had read the letter, that he rent his clothes, and said, [Am] I God, to kill and to make alive, that this man doth send unto me to recover a man of his leprosy? wherefore consider, I pray you, and see how he seeketh a quarrel against me.
+
+**8** And it was [so], when Elisha the man of God had heard that the king of Israel had rent his clothes, that he sent to the king, saying, Wherefore hast thou rent thy clothes? let him come now to me, and he shall know that there is a prophet in Israel.
+
+**9** ¶ So Naaman came with his horses and with his chariot, and stood at the door of the house of Elisha.
+
+**10** And Elisha sent a messenger unto him, saying, Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean.
+
+**11** But Naaman was wroth, and went away, and said, Behold, I thought, He will surely come out to me, and stand, and call on the name of the LORD his God, and strike his hand over the place, and recover the leper.
+
+**12** [Are] not Abana and Pharpar, rivers of Damascus, better than all the waters of Israel? may I not wash in them, and be clean? So he turned and went away in a rage.
+
+**13** And his servants came near, and spake unto him, and said, My father, [if] the prophet had bid thee [do some] great thing, wouldest thou not have done [it]? how much rather then, when he saith to thee, Wash, and be clean?
+
+**14** Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean.
+
+**15** ¶ And he returned to the man of God, he and all his company, and came, and stood before him: and he said, Behold, now I know that [there is] no God in all the earth, but in Israel: now therefore, I pray thee, take a blessing of thy servant.
+
+**16** But he said, [As] the LORD liveth, before whom I stand, I will receive none. And he urged him to take [it]; but he refused.
+
+**17** And Naaman said, Shall there not then, I pray thee, be given to thy servant two mules' burden of earth? for thy servant will henceforth offer neither burnt offering nor sacrifice unto other gods, but unto the LORD.
+
+**18** In this thing the LORD pardon thy servant, [that] when my master goeth into the house of Rimmon to worship there, and he leaneth on my hand, and I bow myself in the house of Rimmon: when I bow down myself in the house of Rimmon, the LORD pardon thy servant in this thing.
+
+**19** And he said unto him, Go in peace. So he departed from him a little way.
+
+**20** ¶ But Gehazi, the servant of Elisha the man of God, said, Behold, my master hath spared Naaman this Syrian, in not receiving at his hands that which he brought: but, [as] the LORD liveth, I will run after him, and take somewhat of him.
+
+**21** So Gehazi followed after Naaman. And when Naaman saw [him] running after him, he lighted down from the chariot to meet him, and said, [Is] all well?
+
+**22** And he said, All [is] well. My master hath sent me, saying, Behold, even now there be come to me from mount Ephraim two young men of the sons of the prophets: give them, I pray thee, a talent of silver, and two changes of garments.
+
+**23** And Naaman said, Be content, take two talents. And he urged him, and bound two talents of silver in two bags, with two changes of garments, and laid [them] upon two of his servants; and they bare [them] before him.
+
+**24** And when he came to the tower, he took [them] from their hand, and bestowed [them] in the house: and he let the men go, and they departed.
+
+**25** But he went in, and stood before his master. And Elisha said unto him, Whence [comest thou], Gehazi? And he said, Thy servant went no whither.
+
+**26** And he said unto him, Went not mine heart [with thee], when the man turned again from his chariot to meet thee? [Is it] a time to receive money, and to receive garments, and oliveyards, and vineyards, and sheep, and oxen, and menservants, and maidservants?
+
+**27** The leprosy therefore of Naaman shall cleave unto thee, and unto thy seed for ever. And he went out from his presence a leper [as white] as snow.
+
+---
+
+## Cross-References
+
+- **2 Kings 5:1** → **Exodus 11:3** [[Exodus ch: 11.md]] (votes: 4)
+- **2 Kings 5:1** → **Esther 9:4** [[Esther ch: 9.md]] (votes: 5)
+- **2 Kings 5:1** → **2 Kings 5:27** [[2 Kings ch: 5.md]] (votes: 1)
+- **2 Kings 5:1** → **Luke 4:27** [[Luke ch: 4.md]] (votes: 18)
+- **2 Kings 5:1** → **2 Kings 4:8** [[2 Kings ch: 4.md]] (votes: 3)
+- **2 Kings 5:1** → **Esther 10:3** [[Esther ch: 10.md]] (votes: 5)
+- **2 Kings 5:1** → **John 19:11** [[John ch: 19.md]] (votes: 2)
+- **2 Kings 5:1** → **2 Kings 7:3** [[2 Kings ch: 7.md]] (votes: 2)
+- **2 Kings 5:1** → **Deuteronomy 2:37** [[Deuteronomy ch: 2.md]] (votes: 5)
+- **2 Kings 5:1** → **2 Samuel 3:29** [[2 Samuel ch: 3.md]] (votes: 2)
+- **2 Kings 5:1** → **Proverbs 21:31** [[Proverbs ch: 21.md]] (votes: 6)
+- **2 Kings 5:1** → **Romans 15:18** [[Romans ch: 15.md]] (votes: 8)
+- **2 Kings 5:1** → **2 Corinthians 12:7** [[2 Corinthians ch: 12.md]] (votes: 2)
+- **2 Kings 5:2** → **Judges 9:34** [[Judges ch: 9.md]] (votes: 1)
+- **2 Kings 5:2** → **Psalms 123:2** [[Psalms ch: 123.md]] (votes: 2)
+- **2 Kings 5:2** → **2 Kings 6:23** [[2 Kings ch: 6.md]] (votes: 5)
+- **2 Kings 5:2** → **2 Kings 13:20** [[2 Kings ch: 13.md]] (votes: 4)
+- **2 Kings 5:3** → **Acts 26:29** [[Acts ch: 26.md]] (votes: 3)
+- **2 Kings 5:3** → **2 Kings 5:8** [[2 Kings ch: 5.md]] (votes: 2)
+- **2 Kings 5:3** → **1 Corinthians 4:8** [[1 Corinthians ch: 4.md]] (votes: 2)
+- **2 Kings 5:3** → **Matthew 11:5** [[Matthew ch: 11.md]] (votes: 2)
+- **2 Kings 5:3** → **Numbers 11:29** [[Numbers ch: 11.md]] (votes: 3)
+- **2 Kings 5:4** → **Mark 5:19** [[Mark ch: 5.md]] (votes: 2)
+- **2 Kings 5:5** → **1 Kings 13:7** [[1 Kings ch: 13.md]] (votes: 2)
+- **2 Kings 5:5** → **Isaiah 5:5** [[Isaiah ch: 5.md]] (votes: 2)
+- **2 Kings 5:5** → **Genesis 11:7** [[Genesis ch: 11.md]] (votes: 2)
+- **2 Kings 5:5** → **Judges 14:12** [[Judges ch: 14.md]] (votes: 5)
+- **2 Kings 5:5** → **1 Kings 22:3** [[1 Kings ch: 22.md]] (votes: 2)
+- **2 Kings 5:5** → **Genesis 45:22** [[Genesis ch: 45.md]] (votes: 2)
+- **2 Kings 5:5** → **Ecclesiastes 2:1** [[Ecclesiastes ch: 2.md]] (votes: 2)
+- **2 Kings 5:5** → **2 Kings 4:42** [[2 Kings ch: 4.md]] (votes: 2)
+- **2 Kings 5:5** → **Numbers 22:7** [[Numbers ch: 22.md]] (votes: 2)
+- **2 Kings 5:5** → **James 4:13** [[James ch: 4.md]] (votes: 2)
+- **2 Kings 5:5** → **Genesis 11:3** [[Genesis ch: 11.md]] (votes: 2)
+- **2 Kings 5:7** → **Deuteronomy 32:29** [[Deuteronomy ch: 32.md]] (votes: 2)
+- **2 Kings 5:7** → **Luke 11:54** [[Luke ch: 11.md]] (votes: 3)
+- **2 Kings 5:7** → **1 Samuel 2:6** [[1 Samuel ch: 2.md]] (votes: 8)
+- **2 Kings 5:7** → **Deuteronomy 32:39** [[Deuteronomy ch: 32.md]] (votes: 5)
+- **2 Kings 5:7** → **Numbers 14:6** [[Numbers ch: 14.md]] (votes: 2)
+- **2 Kings 5:7** → **1 Kings 20:7** [[1 Kings ch: 20.md]] (votes: 6)
+- **2 Kings 5:7** → **Jeremiah 36:24** [[Jeremiah ch: 36.md]] (votes: 2)
+- **2 Kings 5:7** → **Daniel 2:11** [[Daniel ch: 2.md]] (votes: 3)
+- **2 Kings 5:7** → **Acts 14:14** [[Acts ch: 14.md]] (votes: 2)
+- **2 Kings 5:7** → **Hosea 6:1** [[Hosea ch: 6.md]] (votes: 3)
+- **2 Kings 5:7** → **Genesis 30:2** [[Genesis ch: 30.md]] (votes: 6)
+- **2 Kings 5:7** → **2 Kings 11:14** [[2 Kings ch: 11.md]] (votes: 2)
+- **2 Kings 5:7** → **Matthew 26:65** [[Matthew ch: 26.md]] (votes: 2)
+- **2 Kings 5:8** → **2 Kings 1:6** [[2 Kings ch: 1.md]] (votes: 2)
+- **2 Kings 5:8** → **Exodus 11:8** [[Exodus ch: 11.md]] (votes: 2)
+- **2 Kings 5:8** → **Hosea 12:13** [[Hosea ch: 12.md]] (votes: 2)
+- **2 Kings 5:8** → **1 Kings 17:24** [[1 Kings ch: 17.md]] (votes: 2)
+- **2 Kings 5:8** → **2 Kings 5:3** [[2 Kings ch: 5.md]] (votes: 2)
+- **2 Kings 5:8** → **Ezekiel 2:5** [[Ezekiel ch: 2.md]] (votes: 2)
+- **2 Kings 5:8** → **2 Samuel 3:31** [[2 Samuel ch: 3.md]] (votes: 2)
+- **2 Kings 5:8** → **Romans 11:13** [[Romans ch: 11.md]] (votes: 2)
+- **2 Kings 5:8** → **2 Kings 5:15** [[2 Kings ch: 5.md]] (votes: 2)
+- **2 Kings 5:8** → **2 Kings 5:7** [[2 Kings ch: 5.md]] (votes: 2)
+- **2 Kings 5:9** → **Isaiah 60:14** [[Isaiah ch: 60.md]] (votes: 2)
+- **2 Kings 5:9** → **2 Kings 3:12** [[2 Kings ch: 3.md]] (votes: 2)
+- **2 Kings 5:9** → **2 Kings 6:32** [[2 Kings ch: 6.md]] (votes: 2)
+- **2 Kings 5:10** → **Leviticus 14:7** [[Leviticus ch: 14.md]] (votes: 7)
+- **2 Kings 5:10** → **2 Kings 3:16** [[2 Kings ch: 3.md]] (votes: 3)
+- **2 Kings 5:10** → **2 Kings 5:14** [[2 Kings ch: 5.md]] (votes: 4)
+- **2 Kings 5:10** → **Joshua 6:4** [[Joshua ch: 6.md]] (votes: 4)
+- **2 Kings 5:10** → **Leviticus 14:51** [[Leviticus ch: 14.md]] (votes: 4)
+- **2 Kings 5:10** → **Leviticus 16:14** [[Leviticus ch: 16.md]] (votes: 4)
+- **2 Kings 5:10** → **2 Kings 4:41** [[2 Kings ch: 4.md]] (votes: 4)
+- **2 Kings 5:10** → **1 Corinthians 6:11** [[1 Corinthians ch: 6.md]] (votes: 7)
+- **2 Kings 5:10** → **2 Kings 2:21** [[2 Kings ch: 2.md]] (votes: 2)
+- **2 Kings 5:10** → **Leviticus 14:16** [[Leviticus ch: 14.md]] (votes: 4)
+- **2 Kings 5:10** → **Numbers 19:4** [[Numbers ch: 19.md]] (votes: 4)
+- **2 Kings 5:10** → **Leviticus 16:19** [[Leviticus ch: 16.md]] (votes: 4)
+- **2 Kings 5:10** → **Numbers 19:19** [[Numbers ch: 19.md]] (votes: 4)
+- **2 Kings 5:10** → **John 9:7** [[John ch: 9.md]] (votes: 9)
+- **2 Kings 5:11** → **Proverbs 1:32** [[Proverbs ch: 1.md]] (votes: 2)
+- **2 Kings 5:11** → **Hebrews 12:25** [[Hebrews ch: 12.md]] (votes: 2)
+- **2 Kings 5:11** → **Matthew 8:8** [[Matthew ch: 8.md]] (votes: 2)
+- **2 Kings 5:11** → **John 13:20** [[John ch: 13.md]] (votes: 2)
+- **2 Kings 5:11** → **John 4:48** [[John ch: 4.md]] (votes: 2)
+- **2 Kings 5:11** → **Proverbs 13:10** [[Proverbs ch: 13.md]] (votes: 2)
+- **2 Kings 5:11** → **Matthew 19:22** [[Matthew ch: 19.md]] (votes: 2)
+- **2 Kings 5:11** → **Luke 14:11** [[Luke ch: 14.md]] (votes: 2)
+- **2 Kings 5:11** → **Matthew 15:27** [[Matthew ch: 15.md]] (votes: 2)
+- **2 Kings 5:11** → **Proverbs 3:7** [[Proverbs ch: 3.md]] (votes: 2)
+- **2 Kings 5:12** → **Mark 1:9** [[Mark ch: 1.md]] (votes: 4)
+- **2 Kings 5:12** → **2 Kings 2:8** [[2 Kings ch: 2.md]] (votes: 2)
+- **2 Kings 5:12** → **2 Kings 5:17** [[2 Kings ch: 5.md]] (votes: 2)
+- **2 Kings 5:12** → **Zechariah 13:1** [[Zechariah ch: 13.md]] (votes: 2)
+- **2 Kings 5:12** → **Proverbs 19:11** [[Proverbs ch: 19.md]] (votes: 2)
+- **2 Kings 5:12** → **Zechariah 14:8** [[Zechariah ch: 14.md]] (votes: 1)
+- **2 Kings 5:12** → **2 Kings 2:14** [[2 Kings ch: 2.md]] (votes: 2)
+- **2 Kings 5:12** → **Proverbs 14:17** [[Proverbs ch: 14.md]] (votes: 2)
+- **2 Kings 5:13** → **1 Corinthians 1:21** [[1 Corinthians ch: 1.md]] (votes: 2)
+- **2 Kings 5:13** → **Revelation 7:14** [[Revelation ch: 7.md]] (votes: 5)
+- **2 Kings 5:13** → **Hebrews 10:22** [[Hebrews ch: 10.md]] (votes: 3)
+- **2 Kings 5:13** → **2 Kings 2:12** [[2 Kings ch: 2.md]] (votes: 5)
+- **2 Kings 5:13** → **2 Kings 6:21** [[2 Kings ch: 6.md]] (votes: 7)
+- **2 Kings 5:13** → **2 Kings 5:10** [[2 Kings ch: 5.md]] (votes: 2)
+- **2 Kings 5:13** → **1 Kings 20:31** [[1 Kings ch: 20.md]] (votes: 2)
+- **2 Kings 5:13** → **John 13:8** [[John ch: 13.md]] (votes: 2)
+- **2 Kings 5:13** → **Psalms 51:7** [[Psalms ch: 51.md]] (votes: 2)
+- **2 Kings 5:13** → **2 Kings 13:14** [[2 Kings ch: 13.md]] (votes: 5)
+- **2 Kings 5:13** → **Genesis 41:43** [[Genesis ch: 41.md]] (votes: 1)
+- **2 Kings 5:13** → **Titus 3:5** [[Titus ch: 3.md]] (votes: 3)
+- **2 Kings 5:13** → **Acts 22:16** [[Acts ch: 22.md]] (votes: 3)
+- **2 Kings 5:13** → **1 Peter 3:21** [[1 Peter ch: 3.md]] (votes: 4)
+- **2 Kings 5:13** → **2 Kings 8:9** [[2 Kings ch: 8.md]] (votes: 2)
+- **2 Kings 5:13** → **2 Kings 5:3** [[2 Kings ch: 5.md]] (votes: 2)
+- **2 Kings 5:13** → **Matthew 23:9** [[Matthew ch: 23.md]] (votes: 2)
+- **2 Kings 5:13** → **1 Corinthians 4:15** [[1 Corinthians ch: 4.md]] (votes: 2)
+- **2 Kings 5:13** → **Isaiah 1:16** [[Isaiah ch: 1.md]] (votes: 2)
+- **2 Kings 5:13** → **1 Corinthians 1:27** [[1 Corinthians ch: 1.md]] (votes: 2)
+- **2 Kings 5:13** → **Psalms 51:2** [[Psalms ch: 51.md]] (votes: 2)
+- **2 Kings 5:13** → **1 Kings 20:23** [[1 Kings ch: 20.md]] (votes: 2)
+- **2 Kings 5:13** → **Malachi 1:6** [[Malachi ch: 1.md]] (votes: 2)
+- **2 Kings 5:14** → **Job 31:13** [[Job ch: 31.md]] (votes: 5)
+- **2 Kings 5:14** → **Zechariah 13:1** [[Zechariah ch: 13.md]] (votes: 4)
+- **2 Kings 5:14** → **Luke 4:27** [[Luke ch: 4.md]] (votes: 14)
+- **2 Kings 5:14** → **Job 33:25** [[Job ch: 33.md]] (votes: 16)
+- **2 Kings 5:14** → **Proverbs 9:9** [[Proverbs ch: 9.md]] (votes: 1)
+- **2 Kings 5:14** → **Zechariah 14:8** [[Zechariah ch: 14.md]] (votes: 9)
+- **2 Kings 5:14** → **2 Chronicles 20:20** [[2 Chronicles ch: 20.md]] (votes: 2)
+- **2 Kings 5:14** → **Luke 5:13** [[Luke ch: 5.md]] (votes: 12)
+- **2 Kings 5:14** → **2 Kings 5:10** [[2 Kings ch: 5.md]] (votes: 6)
+- **2 Kings 5:14** → **John 2:5** [[John ch: 2.md]] (votes: 6)
+- **2 Kings 5:14** → **Titus 2:14** [[Titus ch: 2.md]] (votes: 1)
+- **2 Kings 5:15** → **Joshua 9:9** [[Joshua ch: 9.md]] (votes: 3)
+- **2 Kings 5:15** → **2 Kings 5:8** [[2 Kings ch: 5.md]] (votes: 3)
+- **2 Kings 5:15** → **1 Kings 18:36** [[1 Kings ch: 18.md]] (votes: 3)
+- **2 Kings 5:15** → **Romans 10:10** [[Romans ch: 10.md]] (votes: 3)
+- **2 Kings 5:15** → **1 Samuel 25:27** [[1 Samuel ch: 25.md]] (votes: 3)
+- **2 Kings 5:15** → **Isaiah 44:6** [[Isaiah ch: 44.md]] (votes: 3)
+- **2 Kings 5:15** → **Joshua 9:24** [[Joshua ch: 9.md]] (votes: 0)
+- **2 Kings 5:15** → **Isaiah 44:8** [[Isaiah ch: 44.md]] (votes: 3)
+- **2 Kings 5:15** → **Daniel 3:29** [[Daniel ch: 3.md]] (votes: 3)
+- **2 Kings 5:15** → **2 Corinthians 9:5** [[2 Corinthians ch: 9.md]] (votes: 3)
+- **2 Kings 5:15** → **Isaiah 45:6** [[Isaiah ch: 45.md]] (votes: 3)
+- **2 Kings 5:15** → **Genesis 33:11** [[Genesis ch: 33.md]] (votes: 2)
+- **2 Kings 5:15** → **Daniel 4:34** [[Daniel ch: 4.md]] (votes: 2)
+- **2 Kings 5:15** → **Daniel 2:47** [[Daniel ch: 2.md]] (votes: 8)
+- **2 Kings 5:16** → **1 Kings 18:15** [[1 Kings ch: 18.md]] (votes: 2)
+- **2 Kings 5:16** → **Matthew 10:8** [[Matthew ch: 10.md]] (votes: 2)
+- **2 Kings 5:16** → **2 Kings 5:20** [[2 Kings ch: 5.md]] (votes: 4)
+- **2 Kings 5:16** → **2 Kings 5:26** [[2 Kings ch: 5.md]] (votes: 4)
+- **2 Kings 5:16** → **2 Corinthians 12:14** [[2 Corinthians ch: 12.md]] (votes: 2)
+- **2 Kings 5:16** → **1 Kings 17:1** [[1 Kings ch: 17.md]] (votes: 3)
+- **2 Kings 5:16** → **Daniel 5:17** [[Daniel ch: 5.md]] (votes: 3)
+- **2 Kings 5:16** → **1 Kings 13:8** [[1 Kings ch: 13.md]] (votes: 3)
+- **2 Kings 5:16** → **2 Kings 3:14** [[2 Kings ch: 3.md]] (votes: 4)
+- **2 Kings 5:16** → **1 Corinthians 6:12** [[1 Corinthians ch: 6.md]] (votes: 2)
+- **2 Kings 5:17** → **Exodus 20:24** [[Exodus ch: 20.md]] (votes: 2)
+- **2 Kings 5:17** → **Acts 26:18** [[Acts ch: 26.md]] (votes: 3)
+- **2 Kings 5:17** → **Romans 14:1** [[Romans ch: 14.md]] (votes: 2)
+- **2 Kings 5:17** → **1 Peter 4:3** [[1 Peter ch: 4.md]] (votes: 2)
+- **2 Kings 5:17** → **2 Kings 5:12** [[2 Kings ch: 5.md]] (votes: 2)
+- **2 Kings 5:17** → **1 Thessalonians 1:9** [[1 Thessalonians ch: 1.md]] (votes: 1)
+- **2 Kings 5:18** → **Jeremiah 50:20** [[Jeremiah ch: 50.md]] (votes: 3)
+- **2 Kings 5:18** → **2 Kings 17:35** [[2 Kings ch: 17.md]] (votes: 4)
+- **2 Kings 5:18** → **2 Kings 7:2** [[2 Kings ch: 7.md]] (votes: 6)
+- **2 Kings 5:18** → **1 Kings 19:18** [[1 Kings ch: 19.md]] (votes: 3)
+- **2 Kings 5:18** → **Exodus 20:5** [[Exodus ch: 20.md]] (votes: 3)
+- **2 Kings 5:18** → **2 Kings 7:17** [[2 Kings ch: 7.md]] (votes: 4)
+- **2 Kings 5:19** → **Luke 7:50** [[Luke ch: 7.md]] (votes: 2)
+- **2 Kings 5:19** → **Genesis 35:16** [[Genesis ch: 35.md]] (votes: 2)
+- **2 Kings 5:19** → **Exodus 4:18** [[Exodus ch: 4.md]] (votes: 3)
+- **2 Kings 5:19** → **Luke 8:48** [[Luke ch: 8.md]] (votes: 2)
+- **2 Kings 5:19** → **1 Samuel 25:35** [[1 Samuel ch: 25.md]] (votes: 2)
+- **2 Kings 5:19** → **John 16:12** [[John ch: 16.md]] (votes: 2)
+- **2 Kings 5:19** → **1 Corinthians 3:2** [[1 Corinthians ch: 3.md]] (votes: 2)
+- **2 Kings 5:19** → **Mark 5:34** [[Mark ch: 5.md]] (votes: 3)
+- **2 Kings 5:19** → **1 Samuel 1:17** [[1 Samuel ch: 1.md]] (votes: 6)
+- **2 Kings 5:20** → **Acts 5:2** [[Acts ch: 5.md]] (votes: 2)
+- **2 Kings 5:20** → **1 Samuel 14:39** [[1 Samuel ch: 14.md]] (votes: 2)
+- **2 Kings 5:20** → **Proverbs 26:16** [[Proverbs ch: 26.md]] (votes: 2)
+- **2 Kings 5:20** → **2 Kings 4:31** [[2 Kings ch: 4.md]] (votes: 4)
+- **2 Kings 5:20** → **John 6:70** [[John ch: 6.md]] (votes: 2)
+- **2 Kings 5:20** → **Luke 16:8** [[Luke ch: 16.md]] (votes: 2)
+- **2 Kings 5:20** → **1 Peter 5:2** [[1 Peter ch: 5.md]] (votes: 2)
+- **2 Kings 5:20** → **Exodus 20:7** [[Exodus ch: 20.md]] (votes: 3)
+- **2 Kings 5:20** → **2 Kings 4:12** [[2 Kings ch: 4.md]] (votes: 5)
+- **2 Kings 5:20** → **John 13:2** [[John ch: 13.md]] (votes: 2)
+- **2 Kings 5:20** → **Jeremiah 22:17** [[Jeremiah ch: 22.md]] (votes: 2)
+- **2 Kings 5:20** → **Titus 1:7** [[Titus ch: 1.md]] (votes: 3)
+- **2 Kings 5:20** → **2 Kings 4:36** [[2 Kings ch: 4.md]] (votes: 4)
+- **2 Kings 5:20** → **Habakkuk 2:9** [[Habakkuk ch: 2.md]] (votes: 2)
+- **2 Kings 5:20** → **Psalms 10:3** [[Psalms ch: 10.md]] (votes: 2)
+- **2 Kings 5:20** → **2 Kings 6:31** [[2 Kings ch: 6.md]] (votes: 4)
+- **2 Kings 5:20** → **Matthew 10:4** [[Matthew ch: 10.md]] (votes: 2)
+- **2 Kings 5:20** → **2 Timothy 4:10** [[2 Timothy ch: 4.md]] (votes: 3)
+- **2 Kings 5:20** → **Exodus 20:17** [[Exodus ch: 20.md]] (votes: 2)
+- **2 Kings 5:20** → **Luke 12:15** [[Luke ch: 12.md]] (votes: 2)
+- **2 Kings 5:21** → **Acts 8:31** [[Acts ch: 8.md]] (votes: 2)
+- **2 Kings 5:21** → **2 Kings 4:26** [[2 Kings ch: 4.md]] (votes: 2)
+- **2 Kings 5:22** → **2 Kings 5:5** [[2 Kings ch: 5.md]] (votes: 5)
+- **2 Kings 5:22** → **1 Kings 13:18** [[1 Kings ch: 13.md]] (votes: 2)
+- **2 Kings 5:22** → **1 Kings 20:35** [[1 Kings ch: 20.md]] (votes: 2)
+- **2 Kings 5:22** → **Isaiah 59:3** [[Isaiah ch: 59.md]] (votes: 2)
+- **2 Kings 5:22** → **Revelation 21:8** [[Revelation ch: 21.md]] (votes: 2)
+- **2 Kings 5:22** → **2 Kings 2:3** [[2 Kings ch: 2.md]] (votes: 2)
+- **2 Kings 5:22** → **Joshua 24:33** [[Joshua ch: 24.md]] (votes: 2)
+- **2 Kings 5:22** → **John 8:44** [[John ch: 8.md]] (votes: 2)
+- **2 Kings 5:22** → **Jeremiah 9:3** [[Jeremiah ch: 9.md]] (votes: 2)
+- **2 Kings 5:22** → **Jeremiah 9:5** [[Jeremiah ch: 9.md]] (votes: 2)
+- **2 Kings 5:22** → **1 Kings 20:39** [[1 Kings ch: 20.md]] (votes: 2)
+- **2 Kings 5:23** → **2 Kings 5:16** [[2 Kings ch: 5.md]] (votes: 2)
+- **2 Kings 5:23** → **Isaiah 30:6** [[Isaiah ch: 30.md]] (votes: 2)
+- **2 Kings 5:23** → **1 Kings 20:7** [[1 Kings ch: 20.md]] (votes: 2)
+- **2 Kings 5:23** → **2 Kings 6:3** [[2 Kings ch: 6.md]] (votes: 2)
+- **2 Kings 5:23** → **Luke 11:54** [[Luke ch: 11.md]] (votes: 2)
+- **2 Kings 5:23** → **2 Kings 2:17** [[2 Kings ch: 2.md]] (votes: 2)
+- **2 Kings 5:23** → **2 Kings 12:10** [[2 Kings ch: 12.md]] (votes: 2)
+- **2 Kings 5:24** → **Habakkuk 2:6** [[Habakkuk ch: 2.md]] (votes: 2)
+- **2 Kings 5:24** → **Joshua 7:1** [[Joshua ch: 7.md]] (votes: 3)
+- **2 Kings 5:24** → **Isaiah 29:15** [[Isaiah ch: 29.md]] (votes: 2)
+- **2 Kings 5:24** → **Joshua 7:21** [[Joshua ch: 7.md]] (votes: 3)
+- **2 Kings 5:24** → **1 Kings 21:16** [[1 Kings ch: 21.md]] (votes: 3)
+- **2 Kings 5:25** → **Genesis 4:9** [[Genesis ch: 4.md]] (votes: 2)
+- **2 Kings 5:25** → **John 13:2** [[John ch: 13.md]] (votes: 1)
+- **2 Kings 5:25** → **Matthew 26:21** [[Matthew ch: 26.md]] (votes: 2)
+- **2 Kings 5:25** → **Proverbs 30:20** [[Proverbs ch: 30.md]] (votes: 2)
+- **2 Kings 5:25** → **2 Kings 5:22** [[2 Kings ch: 5.md]] (votes: 3)
+- **2 Kings 5:25** → **Genesis 16:8** [[Genesis ch: 16.md]] (votes: 2)
+- **2 Kings 5:25** → **2 Kings 20:14** [[2 Kings ch: 20.md]] (votes: 2)
+- **2 Kings 5:25** → **Ezekiel 33:31** [[Ezekiel ch: 33.md]] (votes: 2)
+- **2 Kings 5:26** → **Matthew 10:8** [[Matthew ch: 10.md]] (votes: 3)
+- **2 Kings 5:26** → **Proverbs 12:22** [[Proverbs ch: 12.md]] (votes: 2)
+- **2 Kings 5:26** → **1 Corinthians 5:3** [[1 Corinthians ch: 5.md]] (votes: 9)
+- **2 Kings 5:26** → **Acts 20:33** [[Acts ch: 20.md]] (votes: 2)
+- **2 Kings 5:26** → **Genesis 14:23** [[Genesis ch: 14.md]] (votes: 3)
+- **2 Kings 5:26** → **2 Kings 5:16** [[2 Kings ch: 5.md]] (votes: 3)
+- **2 Kings 5:26** → **2 Kings 6:12** [[2 Kings ch: 6.md]] (votes: 5)
+- **2 Kings 5:26** → **Proverbs 12:19** [[Proverbs ch: 12.md]] (votes: 2)
+- **2 Kings 5:26** → **Acts 20:35** [[Acts ch: 20.md]] (votes: 3)
+- **2 Kings 5:26** → **Acts 5:9** [[Acts ch: 5.md]] (votes: 1)
+- **2 Kings 5:26** → **Colossians 2:5** [[Colossians ch: 2.md]] (votes: 10)
+- **2 Kings 5:26** → **Psalms 63:11** [[Psalms ch: 63.md]] (votes: 2)
+- **2 Kings 5:27** → **Numbers 12:10** [[Numbers ch: 12.md]] (votes: 3)
+- **2 Kings 5:27** → **1 Timothy 6:10** [[1 Timothy ch: 6.md]] (votes: 1)
+- **2 Kings 5:27** → **Joshua 7:25** [[Joshua ch: 7.md]] (votes: 2)
+- **2 Kings 5:27** → **Hosea 10:13** [[Hosea ch: 10.md]] (votes: 1)
+- **2 Kings 5:27** → **2 Samuel 3:29** [[2 Samuel ch: 3.md]] (votes: 2)
+- **2 Kings 5:27** → **Acts 8:20** [[Acts ch: 8.md]] (votes: 1)
+- **2 Kings 5:27** → **Acts 5:5** [[Acts ch: 5.md]] (votes: 1)
+- **2 Kings 5:27** → **Acts 5:10** [[Acts ch: 5.md]] (votes: 1)
+- **2 Kings 5:27** → **2 Kings 5:1** [[2 Kings ch: 5.md]] (votes: 2)
+- **2 Kings 5:27** → **Exodus 4:6** [[Exodus ch: 4.md]] (votes: 4)
+- **2 Kings 5:27** → **2 Peter 2:3** [[2 Peter ch: 2.md]] (votes: 1)
+- **2 Kings 5:27** → **2 Kings 15:5** [[2 Kings ch: 15.md]] (votes: 3)

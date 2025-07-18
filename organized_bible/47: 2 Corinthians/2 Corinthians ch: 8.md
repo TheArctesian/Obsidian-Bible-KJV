@@ -1,0 +1,276 @@
+# 2 Corinthians 8
+
+**1** ¶ Moreover, brethren, we do you to wit of the grace of God bestowed on the churches of Macedonia;
+
+**2** How that in a great trial of affliction the abundance of their joy and their deep poverty abounded unto the riches of their liberality.
+
+**3** For to [their] power, I bear record, yea, and beyond [their] power [they were] willing of themselves;
+
+**4** Praying us with much intreaty that we would receive the gift, and [take upon us] the fellowship of the ministering to the saints.
+
+**5** And [this they did], not as we hoped, but first gave their own selves to the Lord, and unto us by the will of God.
+
+**6** Insomuch that we desired Titus, that as he had begun, so he would also finish in you the same grace also.
+
+**7** ¶ Therefore, as ye abound in every [thing, in] faith, and utterance, and knowledge, and [in] all diligence, and [in] your love to us, [see] that ye abound in this grace also.
+
+**8** I speak not by commandment, but by occasion of the forwardness of others, and to prove the sincerity of your love.
+
+**9** For ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich.
+
+**10** And herein I give [my] advice: for this is expedient for you, who have begun before, not only to do, but also to be forward a year ago.
+
+**11** Now therefore perform the doing [of it]; that as [there was] a readiness to will, so [there may be] a performance also out of that which ye have.
+
+**12** For if there be first a willing mind, [it is] accepted according to that a man hath, [and] not according to that he hath not.
+
+**13** For [I mean] not that other men be eased, and ye burdened:
+
+**14** But by an equality, [that] now at this time your abundance [may be a supply] for their want, that their abundance also may be [a supply] for your want: that there may be equality:
+
+**15** As it is written, He that [had gathered] much had nothing over; and he that [had gathered] little had no lack.
+
+**16** ¶ But thanks [be] to God, which put the same earnest care into the heart of Titus for you.
+
+**17** For indeed he accepted the exhortation; but being more forward, of his own accord he went unto you.
+
+**18** And we have sent with him the brother, whose praise [is] in the gospel throughout all the churches;
+
+**19** And not [that] only, but who was also chosen of the churches to travel with us with this grace, which is administered by us to the glory of the same Lord, and [declaration of] your ready mind:
+
+**20** Avoiding this, that no man should blame us in this abundance which is administered by us:
+
+**21** Providing for honest things, not only in the sight of the Lord, but also in the sight of men.
+
+**22** And we have sent with them our brother, whom we have oftentimes proved diligent in many things, but now much more diligent, upon the great confidence which [I have] in you.
+
+**23** Whether [any do enquire] of Titus, [he is] my partner and fellowhelper concerning you: or our brethren [be enquired of, they are] the messengers of the churches, [and] the glory of Christ.
+
+**24** Wherefore shew ye to them, and before the churches, the proof of your love, and of our boasting on your behalf.
+
+---
+
+## Cross-References
+
+- **2 Corinthians 8:1** → **1 Thessalonians 4:10** [[1 Thessalonians ch: 4.md]] (votes: 5)
+- **2 Corinthians 8:1** → **2 Corinthians 9:12** [[2 Corinthians ch: 9.md]] (votes: 3)
+- **2 Corinthians 8:1** → **2 Corinthians 11:9** [[2 Corinthians ch: 11.md]] (votes: 3)
+- **2 Corinthians 8:1** → **2 Corinthians 9:4** [[2 Corinthians ch: 9.md]] (votes: 3)
+- **2 Corinthians 8:1** → **Ephesians 3:8** [[Ephesians ch: 3.md]] (votes: 2)
+- **2 Corinthians 8:1** → **Colossians 1:29** [[Colossians ch: 1.md]] (votes: 5)
+- **2 Corinthians 8:1** → **1 Corinthians 15:10** [[1 Corinthians ch: 15.md]] (votes: 3)
+- **2 Corinthians 8:1** → **2 Corinthians 9:2** [[2 Corinthians ch: 9.md]] (votes: 4)
+- **2 Corinthians 8:1** → **Acts 16:9** [[Acts ch: 16.md]] (votes: 5)
+- **2 Corinthians 8:1** → **Romans 15:26** [[Romans ch: 15.md]] (votes: 4)
+- **2 Corinthians 8:1** → **Acts 11:23** [[Acts ch: 11.md]] (votes: 3)
+- **2 Corinthians 8:2** → **2 Corinthians 6:10** [[2 Corinthians ch: 6.md]] (votes: 6)
+- **2 Corinthians 8:2** → **Proverbs 11:25** [[Proverbs ch: 11.md]] (votes: 7)
+- **2 Corinthians 8:2** → **James 2:5** [[James ch: 2.md]] (votes: 9)
+- **2 Corinthians 8:2** → **2 Corinthians 9:13** [[2 Corinthians ch: 9.md]] (votes: 4)
+- **2 Corinthians 8:2** → **1 Thessalonians 2:14** [[1 Thessalonians ch: 2.md]] (votes: 2)
+- **2 Corinthians 8:2** → **2 Corinthians 1:12** [[2 Corinthians ch: 1.md]] (votes: 2)
+- **2 Corinthians 8:2** → **Revelation 2:9** [[Revelation ch: 2.md]] (votes: 4)
+- **2 Corinthians 8:2** → **2 Corinthians 9:11** [[2 Corinthians ch: 9.md]] (votes: 2)
+- **2 Corinthians 8:2** → **Deuteronomy 15:4** [[Deuteronomy ch: 15.md]] (votes: 5)
+- **2 Corinthians 8:2** → **1 Thessalonians 1:6** [[1 Thessalonians ch: 1.md]] (votes: 3)
+- **2 Corinthians 8:2** → **Romans 12:8** [[Romans ch: 12.md]] (votes: 3)
+- **2 Corinthians 8:3** → **1 Corinthians 16:2** [[1 Corinthians ch: 16.md]] (votes: 4)
+- **2 Corinthians 8:3** → **Colossians 4:13** [[Colossians ch: 4.md]] (votes: 2)
+- **2 Corinthians 8:3** → **Psalms 110:3** [[Psalms ch: 110.md]] (votes: 2)
+- **2 Corinthians 8:3** → **Galatians 4:15** [[Galatians ch: 4.md]] (votes: 2)
+- **2 Corinthians 8:3** → **1 Thessalonians 2:8** [[1 Thessalonians ch: 2.md]] (votes: 2)
+- **2 Corinthians 8:3** → **1 Peter 5:2** [[1 Peter ch: 5.md]] (votes: 2)
+- **2 Corinthians 8:3** → **Philippians 2:13** [[Philippians ch: 2.md]] (votes: 2)
+- **2 Corinthians 8:3** → **1 Chronicles 29:9** [[1 Chronicles ch: 29.md]] (votes: 4)
+- **2 Corinthians 8:3** → **Exodus 35:5** [[Exodus ch: 35.md]] (votes: 8)
+- **2 Corinthians 8:3** → **1 Corinthians 9:17** [[1 Corinthians ch: 9.md]] (votes: 4)
+- **2 Corinthians 8:3** → **Acts 11:29** [[Acts ch: 11.md]] (votes: 4)
+- **2 Corinthians 8:3** → **Romans 10:2** [[Romans ch: 10.md]] (votes: 2)
+- **2 Corinthians 8:3** → **Philemon 1:14** [[Philemon ch: 1.md]] (votes: 5)
+- **2 Corinthians 8:3** → **Mark 14:8** [[Mark ch: 14.md]] (votes: 1)
+- **2 Corinthians 8:3** → **1 Peter 4:11** [[1 Peter ch: 4.md]] (votes: 2)
+- **2 Corinthians 8:3** → **Exodus 35:29** [[Exodus ch: 35.md]] (votes: 8)
+- **2 Corinthians 8:4** → **Galatians 6:10** [[Galatians ch: 6.md]] (votes: 5)
+- **2 Corinthians 8:4** → **1 Corinthians 16:1** [[1 Corinthians ch: 16.md]] (votes: 2)
+- **2 Corinthians 8:4** → **Matthew 25:40** [[Matthew ch: 25.md]] (votes: 2)
+- **2 Corinthians 8:4** → **Galatians 2:10** [[Galatians ch: 2.md]] (votes: 3)
+- **2 Corinthians 8:4** → **1 Timothy 5:10** [[1 Timothy ch: 5.md]] (votes: 2)
+- **2 Corinthians 8:4** → **Acts 11:29** [[Acts ch: 11.md]] (votes: 2)
+- **2 Corinthians 8:4** → **Matthew 10:42** [[Matthew ch: 10.md]] (votes: 2)
+- **2 Corinthians 8:4** → **1 Corinthians 16:15** [[1 Corinthians ch: 16.md]] (votes: 4)
+- **2 Corinthians 8:4** → **2 Corinthians 9:1** [[2 Corinthians ch: 9.md]] (votes: 5)
+- **2 Corinthians 8:4** → **Acts 16:15** [[Acts ch: 16.md]] (votes: 2)
+- **2 Corinthians 8:4** → **Acts 24:17** [[Acts ch: 24.md]] (votes: 6)
+- **2 Corinthians 8:4** → **Mark 14:7** [[Mark ch: 14.md]] (votes: 2)
+- **2 Corinthians 8:4** → **Hebrews 6:10** [[Hebrews ch: 6.md]] (votes: 4)
+- **2 Corinthians 8:4** → **Matthew 12:50** [[Matthew ch: 12.md]] (votes: 2)
+- **2 Corinthians 8:4** → **Romans 15:31** [[Romans ch: 15.md]] (votes: 2)
+- **2 Corinthians 8:5** → **1 Samuel 1:28** [[1 Samuel ch: 1.md]] (votes: 3)
+- **2 Corinthians 8:5** → **Jeremiah 31:33** [[Jeremiah ch: 31.md]] (votes: 2)
+- **2 Corinthians 8:5** → **Romans 6:13** [[Romans ch: 6.md]] (votes: 4)
+- **2 Corinthians 8:5** → **2 Chronicles 30:12** [[2 Chronicles ch: 30.md]] (votes: 4)
+- **2 Corinthians 8:5** → **Romans 12:1** [[Romans ch: 12.md]] (votes: 5)
+- **2 Corinthians 8:5** → **2 Corinthians 8:1** [[2 Corinthians ch: 8.md]] (votes: 4)
+- **2 Corinthians 8:5** → **1 Chronicles 12:18** [[1 Chronicles ch: 12.md]] (votes: 3)
+- **2 Corinthians 8:5** → **2 Corinthians 4:5** [[2 Corinthians ch: 4.md]] (votes: 1)
+- **2 Corinthians 8:5** → **2 Chronicles 30:8** [[2 Chronicles ch: 30.md]] (votes: 2)
+- **2 Corinthians 8:5** → **Zechariah 13:9** [[Zechariah ch: 13.md]] (votes: 0)
+- **2 Corinthians 8:6** → **2 Corinthians 8:19** [[2 Corinthians ch: 8.md]] (votes: 5)
+- **2 Corinthians 8:6** → **2 Corinthians 12:18** [[2 Corinthians ch: 12.md]] (votes: 8)
+- **2 Corinthians 8:6** → **1 Peter 4:10** [[1 Peter ch: 4.md]] (votes: 2)
+- **2 Corinthians 8:6** → **Philippians 4:18** [[Philippians ch: 4.md]] (votes: 2)
+- **2 Corinthians 8:6** → **2 Corinthians 8:4** [[2 Corinthians ch: 8.md]] (votes: 4)
+- **2 Corinthians 8:6** → **2 Corinthians 9:5** [[2 Corinthians ch: 9.md]] (votes: 2)
+- **2 Corinthians 8:7** → **1 Corinthians 1:5** [[1 Corinthians ch: 1.md]] (votes: 6)
+- **2 Corinthians 8:7** → **2 Corinthians 9:8** [[2 Corinthians ch: 9.md]] (votes: 9)
+- **2 Corinthians 8:7** → **2 Corinthians 9:14** [[2 Corinthians ch: 9.md]] (votes: 4)
+- **2 Corinthians 8:7** → **Revelation 3:17** [[Revelation ch: 3.md]] (votes: 3)
+- **2 Corinthians 8:7** → **2 Corinthians 8:6** [[2 Corinthians ch: 8.md]] (votes: 6)
+- **2 Corinthians 8:7** → **1 Peter 1:22** [[1 Peter ch: 1.md]] (votes: 4)
+- **2 Corinthians 8:7** → **Romans 15:14** [[Romans ch: 15.md]] (votes: 4)
+- **2 Corinthians 8:7** → **2 Thessalonians 1:3** [[2 Thessalonians ch: 1.md]] (votes: 8)
+- **2 Corinthians 8:7** → **Philippians 1:9** [[Philippians ch: 1.md]] (votes: 6)
+- **2 Corinthians 8:7** → **2 Peter 3:18** [[2 Peter ch: 3.md]] (votes: 4)
+- **2 Corinthians 8:7** → **Hebrews 12:28** [[Hebrews ch: 12.md]] (votes: 3)
+- **2 Corinthians 8:7** → **Philippians 1:11** [[Philippians ch: 1.md]] (votes: 3)
+- **2 Corinthians 8:7** → **1 Corinthians 13:2** [[1 Corinthians ch: 13.md]] (votes: 6)
+- **2 Corinthians 8:7** → **1 Corinthians 13:8** [[1 Corinthians ch: 13.md]] (votes: 5)
+- **2 Corinthians 8:7** → **Ephesians 4:29** [[Ephesians ch: 4.md]] (votes: 4)
+- **2 Corinthians 8:7** → **2 Corinthians 7:7** [[2 Corinthians ch: 7.md]] (votes: 4)
+- **2 Corinthians 8:7** → **2 Timothy 2:1** [[2 Timothy ch: 2.md]] (votes: 4)
+- **2 Corinthians 8:7** → **1 Corinthians 4:7** [[1 Corinthians ch: 4.md]] (votes: 6)
+- **2 Corinthians 8:7** → **1 Corinthians 14:12** [[1 Corinthians ch: 14.md]] (votes: 4)
+- **2 Corinthians 8:7** → **1 Corinthians 12:13** [[1 Corinthians ch: 12.md]] (votes: 5)
+- **2 Corinthians 8:8** → **Ephesians 4:15** [[Ephesians ch: 4.md]] (votes: 3)
+- **2 Corinthians 8:8** → **2 Corinthians 6:6** [[2 Corinthians ch: 6.md]] (votes: 3)
+- **2 Corinthians 8:8** → **2 Corinthians 8:24** [[2 Corinthians ch: 8.md]] (votes: 3)
+- **2 Corinthians 8:8** → **1 Peter 1:22** [[1 Peter ch: 1.md]] (votes: 4)
+- **2 Corinthians 8:8** → **2 Corinthians 9:7** [[2 Corinthians ch: 9.md]] (votes: 5)
+- **2 Corinthians 8:8** → **Romans 12:9** [[Romans ch: 12.md]] (votes: 3)
+- **2 Corinthians 8:8** → **2 Corinthians 8:10** [[2 Corinthians ch: 8.md]] (votes: 3)
+- **2 Corinthians 8:8** → **Hebrews 10:24** [[Hebrews ch: 10.md]] (votes: 4)
+- **2 Corinthians 8:8** → **1 Corinthians 7:25** [[1 Corinthians ch: 7.md]] (votes: 3)
+- **2 Corinthians 8:8** → **2 Corinthians 9:2** [[2 Corinthians ch: 9.md]] (votes: 3)
+- **2 Corinthians 8:8** → **Joshua 24:14** [[Joshua ch: 24.md]] (votes: 2)
+- **2 Corinthians 8:8** → **Ephesians 6:24** [[Ephesians ch: 6.md]] (votes: 3)
+- **2 Corinthians 8:8** → **1 Corinthians 7:12** [[1 Corinthians ch: 7.md]] (votes: 2)
+- **2 Corinthians 8:8** → **1 Corinthians 7:6** [[1 Corinthians ch: 7.md]] (votes: 9)
+- **2 Corinthians 8:8** → **Ezekiel 33:31** [[Ezekiel ch: 33.md]] (votes: 4)
+- **2 Corinthians 8:9** → **Isaiah 65:8** [[Isaiah ch: 65.md]] (votes: 1)
+- **2 Corinthians 8:9** → **John 17:19** [[John ch: 17.md]] (votes: 1)
+- **2 Corinthians 8:9** → **Ephesians 2:7** [[Ephesians ch: 2.md]] (votes: 12)
+- **2 Corinthians 8:9** → **Matthew 20:28** [[Matthew ch: 20.md]] (votes: 34)
+- **2 Corinthians 8:9** → **John 1:17** [[John ch: 1.md]] (votes: 2)
+- **2 Corinthians 8:9** → **John 1:10** [[John ch: 1.md]] (votes: 2)
+- **2 Corinthians 8:9** → **2 Corinthians 13:14** [[2 Corinthians ch: 13.md]] (votes: 6)
+- **2 Corinthians 8:9** → **Hebrews 1:2** [[Hebrews ch: 1.md]] (votes: 5)
+- **2 Corinthians 8:9** → **John 1:14** [[John ch: 1.md]] (votes: 13)
+- **2 Corinthians 8:9** → **Mark 6:3** [[Mark ch: 6.md]] (votes: 1)
+- **2 Corinthians 8:9** → **Luke 9:58** [[Luke ch: 9.md]] (votes: 6)
+- **2 Corinthians 8:9** → **Romans 5:8** [[Romans ch: 5.md]] (votes: 24)
+- **2 Corinthians 8:9** → **John 12:30** [[John ch: 12.md]] (votes: 1)
+- **2 Corinthians 8:9** → **2 Corinthians 6:10** [[2 Corinthians ch: 6.md]] (votes: 19)
+- **2 Corinthians 8:9** → **Revelation 3:18** [[Revelation ch: 3.md]] (votes: 4)
+- **2 Corinthians 8:9** → **James 2:5** [[James ch: 2.md]] (votes: 10)
+- **2 Corinthians 8:9** → **John 16:15** [[John ch: 16.md]] (votes: 2)
+- **2 Corinthians 8:9** → **Isaiah 62:1** [[Isaiah ch: 62.md]] (votes: 1)
+- **2 Corinthians 8:9** → **Isaiah 53:2** [[Isaiah ch: 53.md]] (votes: 3)
+- **2 Corinthians 8:9** → **Matthew 17:27** [[Matthew ch: 17.md]] (votes: 1)
+- **2 Corinthians 8:9** → **Ephesians 3:8** [[Ephesians ch: 3.md]] (votes: 8)
+- **2 Corinthians 8:9** → **1 Corinthians 15:47** [[1 Corinthians ch: 15.md]] (votes: 1)
+- **2 Corinthians 8:9** → **Luke 8:3** [[Luke ch: 8.md]] (votes: 0)
+- **2 Corinthians 8:9** → **Matthew 8:20** [[Matthew ch: 8.md]] (votes: 2)
+- **2 Corinthians 8:9** → **Revelation 21:7** [[Revelation ch: 21.md]] (votes: 1)
+- **2 Corinthians 8:9** → **Luke 16:11** [[Luke ch: 16.md]] (votes: 6)
+- **2 Corinthians 8:9** → **Ephesians 3:19** [[Ephesians ch: 3.md]] (votes: 4)
+- **2 Corinthians 8:9** → **Romans 8:32** [[Romans ch: 8.md]] (votes: 49)
+- **2 Corinthians 8:9** → **Colossians 1:24** [[Colossians ch: 1.md]] (votes: 0)
+- **2 Corinthians 8:9** → **Luke 2:7** [[Luke ch: 2.md]] (votes: 4)
+- **2 Corinthians 8:9** → **1 Timothy 6:18** [[1 Timothy ch: 6.md]] (votes: 6)
+- **2 Corinthians 8:9** → **Romans 11:12** [[Romans ch: 11.md]] (votes: 1)
+- **2 Corinthians 8:9** → **1 Corinthians 1:4** [[1 Corinthians ch: 1.md]] (votes: 4)
+- **2 Corinthians 8:10** → **1 Corinthians 10:23** [[1 Corinthians ch: 10.md]] (votes: 1)
+- **2 Corinthians 8:10** → **2 Corinthians 12:1** [[2 Corinthians ch: 12.md]] (votes: 2)
+- **2 Corinthians 8:10** → **Proverbs 19:17** [[Proverbs ch: 19.md]] (votes: 5)
+- **2 Corinthians 8:10** → **2 Corinthians 8:8** [[2 Corinthians ch: 8.md]] (votes: 3)
+- **2 Corinthians 8:10** → **John 11:50** [[John ch: 11.md]] (votes: 2)
+- **2 Corinthians 8:10** → **Philippians 4:17** [[Philippians ch: 4.md]] (votes: 4)
+- **2 Corinthians 8:10** → **Matthew 10:42** [[Matthew ch: 10.md]] (votes: 2)
+- **2 Corinthians 8:10** → **Hebrews 13:16** [[Hebrews ch: 13.md]] (votes: 7)
+- **2 Corinthians 8:10** → **1 Corinthians 6:12** [[1 Corinthians ch: 6.md]] (votes: 1)
+- **2 Corinthians 8:10** → **1 Corinthians 16:2** [[1 Corinthians ch: 16.md]] (votes: 4)
+- **2 Corinthians 8:10** → **2 Corinthians 9:2** [[2 Corinthians ch: 9.md]] (votes: 6)
+- **2 Corinthians 8:10** → **1 Corinthians 7:25** [[1 Corinthians ch: 7.md]] (votes: 5)
+- **2 Corinthians 8:10** → **John 16:7** [[John ch: 16.md]] (votes: 0)
+- **2 Corinthians 8:10** → **1 Corinthians 7:40** [[1 Corinthians ch: 7.md]] (votes: 4)
+- **2 Corinthians 8:10** → **John 18:14** [[John ch: 18.md]] (votes: 0)
+- **2 Corinthians 8:11** → **2 Corinthians 9:2** [[2 Corinthians ch: 9.md]] (votes: 5)
+- **2 Corinthians 8:12** → **Luke 16:10** [[Luke ch: 16.md]] (votes: 2)
+- **2 Corinthians 8:12** → **1 Peter 4:10** [[1 Peter ch: 4.md]] (votes: 3)
+- **2 Corinthians 8:12** → **2 Chronicles 6:8** [[2 Chronicles ch: 6.md]] (votes: 1)
+- **2 Corinthians 8:12** → **Proverbs 19:22** [[Proverbs ch: 19.md]] (votes: 1)
+- **2 Corinthians 8:12** → **2 Corinthians 9:7** [[2 Corinthians ch: 9.md]] (votes: 6)
+- **2 Corinthians 8:12** → **Exodus 35:29** [[Exodus ch: 35.md]] (votes: 6)
+- **2 Corinthians 8:12** → **Exodus 25:2** [[Exodus ch: 25.md]] (votes: 5)
+- **2 Corinthians 8:12** → **Exodus 35:5** [[Exodus ch: 35.md]] (votes: 4)
+- **2 Corinthians 8:13** → **Acts 4:34** [[Acts ch: 4.md]] (votes: 6)
+- **2 Corinthians 8:14** → **2 Corinthians 9:12** [[2 Corinthians ch: 9.md]] (votes: 7)
+- **2 Corinthians 8:14** → **Acts 4:34** [[Acts ch: 4.md]] (votes: 6)
+- **2 Corinthians 8:15** → **Exodus 16:18** [[Exodus ch: 16.md]] (votes: 28)
+- **2 Corinthians 8:15** → **Luke 22:35** [[Luke ch: 22.md]] (votes: 16)
+- **2 Corinthians 8:16** → **Ezra 7:27** [[Ezra ch: 7.md]] (votes: 2)
+- **2 Corinthians 8:16** → **Colossians 3:17** [[Colossians ch: 3.md]] (votes: 1)
+- **2 Corinthians 8:16** → **Nehemiah 2:12** [[Nehemiah ch: 2.md]] (votes: 1)
+- **2 Corinthians 8:16** → **Jeremiah 32:40** [[Jeremiah ch: 32.md]] (votes: 3)
+- **2 Corinthians 8:16** → **Jeremiah 31:31** [[Jeremiah ch: 31.md]] (votes: 2)
+- **2 Corinthians 8:16** → **Philippians 2:20** [[Philippians ch: 2.md]] (votes: 3)
+- **2 Corinthians 8:16** → **2 Corinthians 7:12** [[2 Corinthians ch: 7.md]] (votes: 2)
+- **2 Corinthians 8:16** → **2 Corinthians 7:7** [[2 Corinthians ch: 7.md]] (votes: 2)
+- **2 Corinthians 8:16** → **Revelation 17:17** [[Revelation ch: 17.md]] (votes: 5)
+- **2 Corinthians 8:17** → **2 Corinthians 8:8** [[2 Corinthians ch: 8.md]] (votes: 1)
+- **2 Corinthians 8:17** → **2 Corinthians 8:10** [[2 Corinthians ch: 8.md]] (votes: 3)
+- **2 Corinthians 8:17** → **Hebrews 13:22** [[Hebrews ch: 13.md]] (votes: 4)
+- **2 Corinthians 8:17** → **2 Corinthians 8:6** [[2 Corinthians ch: 8.md]] (votes: 6)
+- **2 Corinthians 8:18** → **Romans 16:4** [[Romans ch: 16.md]] (votes: 2)
+- **2 Corinthians 8:18** → **1 Corinthians 7:17** [[1 Corinthians ch: 7.md]] (votes: 3)
+- **2 Corinthians 8:18** → **2 Corinthians 2:12** [[2 Corinthians ch: 2.md]] (votes: 2)
+- **2 Corinthians 8:18** → **2 Corinthians 12:18** [[2 Corinthians ch: 12.md]] (votes: 5)
+- **2 Corinthians 8:18** → **2 Corinthians 8:19** [[2 Corinthians ch: 8.md]] (votes: 3)
+- **2 Corinthians 8:19** → **2 Corinthians 4:15** [[2 Corinthians ch: 4.md]] (votes: 3)
+- **2 Corinthians 8:19** → **Acts 15:25** [[Acts ch: 15.md]] (votes: 2)
+- **2 Corinthians 8:19** → **2 Corinthians 9:8** [[2 Corinthians ch: 9.md]] (votes: 2)
+- **2 Corinthians 8:19** → **Acts 15:22** [[Acts ch: 15.md]] (votes: 2)
+- **2 Corinthians 8:20** → **Matthew 10:16** [[Matthew ch: 10.md]] (votes: 1)
+- **2 Corinthians 8:20** → **Ephesians 5:15** [[Ephesians ch: 5.md]] (votes: 3)
+- **2 Corinthians 8:20** → **1 Corinthians 16:3** [[1 Corinthians ch: 16.md]] (votes: 1)
+- **2 Corinthians 8:20** → **2 Corinthians 11:12** [[2 Corinthians ch: 11.md]] (votes: 1)
+- **2 Corinthians 8:20** → **1 Thessalonians 5:22** [[1 Thessalonians ch: 5.md]] (votes: 3)
+- **2 Corinthians 8:20** → **Romans 14:16** [[Romans ch: 14.md]] (votes: 3)
+- **2 Corinthians 8:21** → **1 Peter 2:12** [[1 Peter ch: 2.md]] (votes: 8)
+- **2 Corinthians 8:21** → **Philippians 4:8** [[Philippians ch: 4.md]] (votes: 7)
+- **2 Corinthians 8:21** → **Romans 12:17** [[Romans ch: 12.md]] (votes: 10)
+- **2 Corinthians 8:21** → **Matthew 6:1** [[Matthew ch: 6.md]] (votes: 3)
+- **2 Corinthians 8:21** → **Matthew 23:5** [[Matthew ch: 23.md]] (votes: 3)
+- **2 Corinthians 8:21** → **Romans 14:18** [[Romans ch: 14.md]] (votes: 5)
+- **2 Corinthians 8:21** → **2 Corinthians 2:17** [[2 Corinthians ch: 2.md]] (votes: 5)
+- **2 Corinthians 8:21** → **1 Thessalonians 5:22** [[1 Thessalonians ch: 5.md]] (votes: 5)
+- **2 Corinthians 8:21** → **Matthew 5:16** [[Matthew ch: 5.md]] (votes: 4)
+- **2 Corinthians 8:21** → **Matthew 6:4** [[Matthew ch: 6.md]] (votes: 4)
+- **2 Corinthians 8:21** → **1 Timothy 5:14** [[1 Timothy ch: 5.md]] (votes: 4)
+- **2 Corinthians 8:23** → **2 Corinthians 8:16** [[2 Corinthians ch: 8.md]] (votes: 2)
+- **2 Corinthians 8:23** → **2 Corinthians 8:6** [[2 Corinthians ch: 8.md]] (votes: 3)
+- **2 Corinthians 8:23** → **Colossians 1:7** [[Colossians ch: 1.md]] (votes: 2)
+- **2 Corinthians 8:23** → **1 Thessalonians 2:2** [[1 Thessalonians ch: 2.md]] (votes: 2)
+- **2 Corinthians 8:23** → **2 Corinthians 12:18** [[2 Corinthians ch: 12.md]] (votes: 2)
+- **2 Corinthians 8:23** → **Philippians 2:25** [[Philippians ch: 2.md]] (votes: 6)
+- **2 Corinthians 8:23** → **2 Corinthians 7:6** [[2 Corinthians ch: 7.md]] (votes: 2)
+- **2 Corinthians 8:23** → **Luke 5:7** [[Luke ch: 5.md]] (votes: 2)
+- **2 Corinthians 8:23** → **Luke 5:10** [[Luke ch: 5.md]] (votes: 2)
+- **2 Corinthians 8:23** → **2 Corinthians 8:19** [[2 Corinthians ch: 8.md]] (votes: 2)
+- **2 Corinthians 8:23** → **Philemon 1:24** [[Philemon ch: 1.md]] (votes: 2)
+- **2 Corinthians 8:23** → **Philemon 1:17** [[Philemon ch: 1.md]] (votes: 5)
+- **2 Corinthians 8:23** → **3 John 1:8** [[3 John ch: 1.md]] (votes: 2)
+- **2 Corinthians 8:23** → **Philippians 4:3** [[Philippians ch: 4.md]] (votes: 2)
+- **2 Corinthians 8:24** → **2 Corinthians 7:4** [[2 Corinthians ch: 7.md]] (votes: 3)
+- **2 Corinthians 8:24** → **2 Corinthians 8:8** [[2 Corinthians ch: 8.md]] (votes: 2)
+- **2 Corinthians 8:24** → **2 Corinthians 7:14** [[2 Corinthians ch: 7.md]] (votes: 4)
